@@ -9,3 +9,6 @@ This page is updated at least weekly.
 ### Don't know where to start? Choose from the [[Published/Throw Salt — Direct Action/High-Priority Actions\|High-Priority Actions]]. 
 
 ## [[Published/Throw Salt — Direct Action/Free, Online Actions\|Free, Online Actions]] 
+## [[Published/Throw Salt — Direct Action/Paid, Online Actions\|Paid, Online Actions]]
+## [[Published/Throw Salt — Direct Action/Free, In-Person Actions\|Free, In-Person Actions]]
+# [[Published/Throw Salt — Direct Action/Paid, In-Person Actions\|Paid, In-Person Actions]]

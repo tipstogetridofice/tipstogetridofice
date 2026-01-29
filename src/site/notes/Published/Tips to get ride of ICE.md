@@ -19,7 +19,13 @@ Resources for various kinds of support (free and financial; in-person and online
 ### ❗️Unfreeze's [[Published/Throw Salt — Direct Action/High-Priority Actions\|High-Priority Actions]]
 ### ➡️ [[Published/Throw Salt — Direct Action/Throw Salt, a Direct Action Masterlist\|Masterlist of Direct Actions to take NOW]]
 ### ➡️ [[Published/Throw Salt — Direct Action/Events/Masterlist of In-person Events\|Masterlist of In-person Events]], by geographical region. 
+### ➡️ [[Published/Get Heated — Inspiration/Get Heated, Become Inspired\|Get Heated, Become Inspired]], success stories and motivation
 ---
 # Defrost: Educational Materials & Resources
 Perhaps you don't have the time, energy, or bandwidth for direct action right now. **Fascism thrives on ignorance and apathy.** Get smart, study your history, and learn how to care for yourself and your community. **If you can't fight the monster, tend the garden.** 
 ### [[Published/Defrost — Educational Materials/Defrost, a Masterlist of Educational Materials\|Masterlist of Informative Resources]]
+
+---
+# Get Heated: Success Stories and Positivity for Inspiration
+Celebrating our successes reminds us that we can do this. 
+### ➡️ [[Published/Get Heated — Inspiration/Get Heated, Become Inspired\|Get Heated, Become Inspired]], success stories and motivation
