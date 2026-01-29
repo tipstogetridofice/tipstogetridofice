@@ -15,4 +15,4 @@ This archive collects & regularly updates vetted resources useful for melting th
 
 # Defrost: Educational Materials 
 Perhaps you don't have the time, energy, or bandwidth for direct action right now. **Fascism thrives on ignorance and apathy.** Get smart, study your history, and learn how to care for yourself and your community. **If you can't fight the monster, tend the garden.** 
-## [[Published/Defrost — Educational Materials/Defrost, An Overview of Educational Materials\|Defrost, An Overview of Educational Materials]]
+### [[Published/Defrost — Educational Materials/Defrost, An Overview of Educational Materials\|Defrost, An Overview of Educational Materials]]
