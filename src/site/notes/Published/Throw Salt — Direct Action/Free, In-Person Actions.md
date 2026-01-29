@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/published/throw-salt-direct-action/free-in-person-actions/"}
 ---
 
+⬅️ Return to the [[Published/Tips to get ride of ICE\|homepage]]. 
+
 If you aren't physically or financially able to contribute at this time, then your time and attention is best put towards **organizing, sharing, and managing digital resources and information.** Fascism thrives on ignorance, apathy, and falsehood, so keep track of knowledge, caring for others, and empowering truthful messages goes a long way towards confronting it. 
 
 Want to contribute in other ways? ⬅️ Return to the [[Published/Throw Salt — Direct Action/Throw Salt, a Direct Action Masterlist\|Masterlist of Direct Actions to take NOW]].
@@ -13,6 +15,7 @@ Have a resource to submit? Email me at unfreezeyourself@proton.me
 
 # US 
 ## Minnesota 
+- Paint a bowl for Empty Bowls 2026 (https://www.helpingfeedpeople.org/empty-bowls/). 
 ### Minneapolis / The Twin Cities 
 -  [This verified linktree](https://linktr.ee/mn50501mutualaid) keeps (relatively) up-to-date lists of ongoing food drives, fundraisers, and resources in Minneapolis (https://linktr.ee/mn50501mutualaid). 
 - **[Sign up to be a carer**](https://www.jotform.com/form/260126904111141) (https://www.jotform.com/form/260126904111141) if you're willing to offer: 
@@ -25,3 +28,8 @@ Have a resource to submit? Email me at unfreezeyourself@proton.me
 	- Coordination / Organization 
 	- Vetting new volunteers 
 	- Other 
+- [Shakopee Ice Patrol](https://www.signupgenius.com/go/20F0E4CADA723A0F85-61248119-shako#/) (https://www.signupgenius.com/go/20F0E4CADA723A0F85-61248119-shako#/) (currently closed) 
+	- DISPATCH: Work from office or home and coordinate patrol. Needs to have EXCELLENT knowledge of Shakopee, the roads, and patterns in our community. Must have completed an ICE training.
+	- PATROL: Drive in a zone checking known hotspots and verifying ICE sitings. Repond as an ICE Observer during ICE activities. We are now joint with Shakopee & Prior Lake / Savage patrol. There are shifts available for each area.
+	- FOOD PACKING AND DELIVERY: Usually picking up and dropping off food and supplies in Shakopee. But some shifts are picking up in other places to deliver in and around Shako. Check your email for details after signup.
+- Volunteer at the [Channel One Regional Food Back ](https://www.helpingfeedpeople.org/volunteer/) (https://www.helpingfeedpeople.org/volunteer/). 

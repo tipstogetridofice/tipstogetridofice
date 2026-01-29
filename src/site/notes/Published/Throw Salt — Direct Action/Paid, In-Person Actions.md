@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/published/throw-salt-direct-action/paid-in-person-actions/"}
 ---
 
+⬅️ Return to the [[Published/Tips to get ride of ICE\|homepage]]. 
+
 Your presence, attention, and money are your main sources of power, thank you for being willing to use them to protect our communities. Below, you can find are regularly updated links to services and communities that are in need. 
 
 Want to contribute in other ways? ⬅️ Return to the [[Published/Throw Salt — Direct Action/Throw Salt, a Direct Action Masterlist\|Masterlist of Direct Actions to take NOW]].
