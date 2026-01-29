@@ -13,8 +13,7 @@ Have a resource to submit? Email me at unfreezeyourself@proton.me
 # ❗️[[Published/If you are in need, Click here\|If you are in need, Click here]] ❗️
 ---
 # Helplines 
-## Minneapolis / the Twin Cities 
-- Call/text [MONARCA](https://monarcamn.org/) **+1 612-441-2881** 
+- Call/text [MONARCA](https://monarcamn.org/) **+1 612-441-2881** (Minneapolis / the Twin Cities)
 	- A rapid-response line that **can receive photo evidence.**
 ---
 ### ❗️Unfreeze's [[Published/Throw Salt — Direct Action/High-Priority Actions\|High-Priority Actions]]
