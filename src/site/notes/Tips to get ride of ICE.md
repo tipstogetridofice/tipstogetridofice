@@ -12,3 +12,7 @@ This archive collects & regularly updates vetted resources useful for melting th
 ## Minneapolis / the Twin Cities 
 - Call/text [MONARCA](https://monarcamn.org/) **+1 612-441-2881** 
 	- A rapid-response line that **can receive photo evidence.**
+
+# Defrost: Educational Materials 
+Perhaps you don't have the time, energy, or bandwidth for direct action right now. **Fascism thrives on ignorance and apathy.** Get smart, study your history, and learn how to care for yourself and your community. **If you can't fight the monster, tend the garden.** 
+## [[Published/Defrost — Educational Materials/Defrost, An Overview of Educational Materials\|Defrost, An Overview of Educational Materials]]
