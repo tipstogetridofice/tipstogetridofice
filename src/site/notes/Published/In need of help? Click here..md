@@ -14,9 +14,10 @@
 # ***Table of Contents*** 
 ```table-of-contents
 ```
-
-# If You Need Food 
+# Find What You Need 
+We're so happy you're here. What do you need? 
+## Food
 - Minnesota 
 	- [Channel One Regional Food Bank](https://www.helpingfeedpeople.org/programs/food-shelf/) serves southeastern Minnesota and western Wisconsin (https://www.helpingfeedpeople.org/programs/food-shelf/). 
 		- Provides groceries to pick up or have delivered. 
-	- Call the [Minnesota Food Helpline](https://www.hungersolutions.org/programs/mn-food-helpline/) . You can call or text 1-888-711-1151, use the chat feature, or [fill out this form to contact us](https://www.hungersolutions.org/programs/mn-food-helpline/how-can-we-help-you/).
+	- **Call the [Minnesota Food Helpline](https://www.hungersolutions.org/programs/mn-food-helpline/) . You can call or text 1-888-711-1151, use the chat feature, or [fill out this form to contact us](https://www.hungersolutions.org/programs/mn-food-helpline/how-can-we-help-you/).**
