@@ -7,7 +7,7 @@
 Your presence, attention, and money are your main sources of power, thank you for being willing to use them to protect our communities. Below, you can find are regularly updated links to services and communities that are in need. 
 
 Want to contribute in other ways? ⬅️ Return to the [[Published/Throw Salt — Direct Action/Direct Actions\|Masterlist of Direct Actions to take NOW]].
-Unable to take direct action right now? Turn up the heat with some [[Published/Get Heated — Inspiration/Get Heated, Become Inspired\|inspiration]], or defrost your brain with [[Published/Defrost — Educational Materials/Educational Materials\|Educational Materials]]. 
+Unable to take direct action right now? Turn up the heat with some [[Published/Get Heated, Become Inspired\|inspiration]], or defrost your brain with [[Published/Educational Materials\|Educational Materials]]. 
 Have a resource to submit? Email me at unfreezeyourself@proton.me
 - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
 # US 

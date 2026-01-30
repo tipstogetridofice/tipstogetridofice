@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/published/in-need-of-help-click-here/"}
+{"dg-publish":true,"permalink":"/published/get-heated-become-inspired/"}
 ---
 
 > [!NOTE] Navigation
@@ -10,8 +10,6 @@
 > ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
-# If You Need Food 
-- Minnesota 
-	- [Channel One Regional Food Bank](https://www.helpingfeedpeople.org/programs/food-shelf/) serves southeastern Minnesota and western Wisconsin (https://www.helpingfeedpeople.org/programs/food-shelf/). 
-		- Provides groceries to pick up or have delivered. 
-	- Call the [Minnesota Food Helpline](https://www.hungersolutions.org/programs/mn-food-helpline/) . You can call or text 1-888-711-1151, use the chat feature, or [fill out this form to contact us](https://www.hungersolutions.org/programs/mn-food-helpline/how-can-we-help-you/).
+# Historic Victories, Recent Wins, Quotes to inspire a Better Future 
+### Central Minnesota's FYJ, a Latinx-led nonprofit, advocated for the Driver's License for All Act 
+"On March 7, 2023, Governor Tim Walz signed the Driver's License for All law. This law will allow undocumented immigrants to obtain a driver's license in the state of Minnesota. This law came into effect on October 1, 2023." ([Source](https://www.feyjusticiamn.com/legislation-victories))

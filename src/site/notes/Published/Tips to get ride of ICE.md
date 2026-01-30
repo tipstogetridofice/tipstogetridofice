@@ -12,12 +12,12 @@ Fascism thrives on inaction, ignorance, and apathy. Don't let it win. There are 
 ---
 ## 🧯 Fight Inaction: [[Published/Throw Salt — Direct Action/Direct Actions\|Direct Actions to take NOW]]
 Even if you aren't physically or financially able to attend protests or donate, there are still many ways you can help. Updated weekdays.  
-## 🍎 Fight Ignorance: [[Published/Defrost — Educational Materials/Educational Materials\|Educational Materials]]
+## 🍎 Fight Ignorance: [[Published/Educational Materials\|Educational Materials]]
 Educate yourself and teach others. Practical information to help you and your community understand the present moment, your rights, and what you can do. 
-## 🔥 Fight Apathy: [[Published/Get Heated — Inspiration/Get Heated, Become Inspired\|Get Heated, Become Inspired]]
+## 🔥 Fight Apathy: [[Published/Get Heated, Become Inspired\|Get Heated, Become Inspired]]
  It's important to remember our past, share and manage information about the present movement, and imagine a hopeful future through stories, fiction, artwork, poetry, and music. 
 
-**Warning: You are our most important resource, and this is a marathon, not a sprint. Give yourself time to rest. Don't know how to unplug? Here are some [[Resources for rest and healing\|Resources for rest and healing]].** 
+**Warning: You are our most important resource, and this is a marathon, not a sprint. Give yourself time to rest. Don't know how to unplug? Here are some [[Published/Resources for rest and healing\|Resources for rest and healing]].** 
 
 ---
 # ☎️ Helplines 
