@@ -10,7 +10,7 @@
 Fascism thrives on inaction, ignorance, and apathy. Don't let it win. There are many different ways to get rid of ICE. 
 
 ---
-## 🧯 Fight Inaction: [[Published/Direct Actions\|Direct Actions to take NOW]]
+## 🧯 Fight Inaction: [[Published/Direct Actions/Direct Actions\|Direct Actions to take NOW]]
 Even if you aren't physically or financially able to attend protests or donate, there are still many ways you can help. Updated weekdays.  
 ## 🍎 Fight Ignorance: [[Published/Educational Materials\|Educational Materials]]
 Educate yourself and teach others. Practical information to help you and your community understand the present moment, your rights, and what you can do. 
