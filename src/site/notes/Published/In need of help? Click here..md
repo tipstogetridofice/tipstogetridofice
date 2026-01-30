@@ -12,11 +12,11 @@
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
 
 # ***Table of Contents*** 
-```table-of-contents
-```
-# Find What You Need 
+- [[#Find What You Need|Find What You Need]]
+	- [[#Find What You Need#Food|Food]]
+## Find What You Need 
 We're so happy you're here. What do you need? 
-## Food
+### Food
 - Minnesota 
 	- [Channel One Regional Food Bank](https://www.helpingfeedpeople.org/programs/food-shelf/) serves southeastern Minnesota and western Wisconsin (https://www.helpingfeedpeople.org/programs/food-shelf/). 
 		- Provides groceries to pick up or have delivered. 

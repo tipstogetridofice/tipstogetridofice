@@ -12,18 +12,23 @@
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
 
 # ***Table of Contents*** 
-```table-of-contents
-```
-# Educational Materials 
+- [[#Educational Materials|Educational Materials]]
+	- [[#Educational Materials#Trainings & Events (Updated Daily)|Trainings & Events (Updated Daily)]]
+		- [[#Trainings & Events (Updated Daily)#30 Jan., 2026 — the Twin Cities, MN, USA|30 Jan., 2026 — the Twin Cities, MN, USA]]
+		- [[#Trainings & Events (Updated Daily)#12 Feb., 2026 — the Twin Cities, MN, USA|12 Feb., 2026 — the Twin Cities, MN, USA]]
+	- [[#Educational Materials#Strategies & Tactics|Strategies & Tactics]]
+	- [[#Educational Materials#Models, Templates, etc|Models, Templates, etc]]
+		- [[#Models, Templates, etc#**Community Policing Agreements**|**Community Policing Agreements**]]
+## Educational Materials 
 Perhaps you don't have the time, energy, or bandwidth for direct action right now. **Fascism thrives on ignorance and apathy.** Get smart, study your history, and learn how to care for yourself and your community. **If you can't fight the monster, tend the garden.** 
-## Trainings & Events (Updated Daily)
-### 30 Jan., 2026 — the Twin Cities, MN, USA
+### Trainings & Events (Updated Daily)
+#### 30 Jan., 2026 — the Twin Cities, MN, USA
 - [Community meeting in Waite Park / Reunión comunitaria en Waite Park](https://www.feyjusticiamn.com/events/community-meeting-in-waite-park-reunion-comunitaria-en-waite-park) 5:30 PM – 7:30 PM St. Joseph Church basement , 106 7th Ave N, Waite Park, MN 56387. [RSVP Here](https://www.feyjusticiamn.com/event)
-### 12 Feb., 2026 — the Twin Cities, MN, USA
+#### 12 Feb., 2026 — the Twin Cities, MN, USA
 - 6:00 PM Monarca Upstander Training (sign up here https://monarcamn.org/training)
-## Strategies & Tactics 
+### Strategies & Tactics 
 - Familiarize yourself and your community with [Monarca's whistle safety zine](https://cryptpad.fr/file/#/2/file/170HgImVipTfXzJ6KjLMokKJ/). (https://cryptpad.fr/file/#/2/file/170HgImVipTfXzJ6KjLMokKJ/)
-## Models, Templates, etc
-### **Community Policing Agreements** 
+### Models, Templates, etc
+#### **Community Policing Agreements** 
 - Central Minnesota's FYJ worked to craft Community Policing Agreements between local police departments and members of the community. 
 	- [This anonymous Google Drive folder](https://drive.google.com/drive/folders/1k6HWBjQt4Os9f0n0eEc3hsy-PIO3XDK4)  contains examples of what these agreements look like (https://drive.google.com/drive/folders/1k6HWBjQt4Os9f0n0eEc3hsy-PIO3XDK4). 
