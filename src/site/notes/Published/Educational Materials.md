@@ -10,15 +10,6 @@
 > ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
-
-# ***Table of Contents*** 
-- [[#Educational Materials|Educational Materials]]
-	- [[#Educational Materials#Trainings & Events (Updated Daily)|Trainings & Events (Updated Daily)]]
-		- [[#Trainings & Events (Updated Daily)#30 Jan., 2026 — the Twin Cities, MN, USA|30 Jan., 2026 — the Twin Cities, MN, USA]]
-		- [[#Trainings & Events (Updated Daily)#12 Feb., 2026 — the Twin Cities, MN, USA|12 Feb., 2026 — the Twin Cities, MN, USA]]
-	- [[#Educational Materials#Strategies & Tactics|Strategies & Tactics]]
-	- [[#Educational Materials#Models, Templates, etc|Models, Templates, etc]]
-		- [[#Models, Templates, etc#**Community Policing Agreements**|**Community Policing Agreements**]]
 ## Educational Materials 
 Perhaps you don't have the time, energy, or bandwidth for direct action right now. **Fascism thrives on ignorance and apathy.** Get smart, study your history, and learn how to care for yourself and your community. **If you can't fight the monster, tend the garden.** 
 ### Trainings & Events (Updated Daily)

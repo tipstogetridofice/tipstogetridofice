@@ -10,26 +10,6 @@
 > ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
-
-# ***Table of Contents*** 
-- [[#A Direct Action Masterlist|A Direct Action Masterlist]]
-	- [[#A Direct Action Masterlist#🐦‍🔥 High-Priority and/or High-Need|🐦‍🔥 High-Priority and/or High-Need]]
-	- [[#A Direct Action Masterlist#🧑‍💻 Free, Remote/Online/Digital Support Needed|🧑‍💻 Free, Remote/Online/Digital Support Needed]]
-		- [[#🧑‍💻 Free, Remote/Online/Digital Support Needed#Coordination and/or Organization|Coordination and/or Organization]]
-		- [[#🧑‍💻 Free, Remote/Online/Digital Support Needed#Legal|Legal]]
-		- [[#🧑‍💻 Free, Remote/Online/Digital Support Needed#Tech Support|Tech Support]]
-		- [[#🧑‍💻 Free, Remote/Online/Digital Support Needed#Translation|Translation]]
-		- [[#🧑‍💻 Free, Remote/Online/Digital Support Needed#Share and Post these Resources|Share and Post these Resources]]
-		- [[#🧑‍💻 Free, Remote/Online/Digital Support Needed#Tell Your Story|Tell Your Story]]
-	- [[#A Direct Action Masterlist#🌻 Financial Support Needed|🌻 Financial Support Needed]]
-		- [[#🌻 Financial Support Needed#Funding Lists|Funding Lists]]
-		- [[#🌻 Financial Support Needed#Mutual Aid Funds|Mutual Aid Funds]]
-		- [[#🌻 Financial Support Needed#Organizations|Organizations]]
-		- [[#🌻 Financial Support Needed#Supplies|Supplies]]
-	- [[#A Direct Action Masterlist#🥫 Physical (in-person) Support Needed|🥫 Physical (in-person) Support Needed]]
-		- [[#🥫 Physical (in-person) Support Needed#US|US]]
-			- [[#US#Minnesota|Minnesota]]
-				- [[#Minnesota#Minneapolis / The Twin Cities|Minneapolis / The Twin Cities]]
 ## A Direct Action Masterlist 
 Direct action is the bread and butter of resistance, but oftentimes it can feel intimidating, overwhelming, or confusing. Outlined below, you can find **tasks you can do *right now*** (or in the near future) that will directly contribute to those working on the front lines. Tasks are organized by whether they are free or paid, in-person or online, or an event you can attend. 
 

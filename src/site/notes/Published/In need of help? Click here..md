@@ -10,10 +10,6 @@
 > ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
-
-# ***Table of Contents*** 
-- [[#Find What You Need|Find What You Need]]
-	- [[#Find What You Need#Food|Food]]
 ## Find What You Need 
 We're so happy you're here. What do you need? 
 ### Food
