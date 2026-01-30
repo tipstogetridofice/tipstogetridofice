@@ -10,6 +10,12 @@
 > ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
+
+# ***Table of Contents*** 
+```table-of-contents
+```
+
+
 # Educational Materials 
 Perhaps you don't have the time, energy, or bandwidth for direct action right now. **Fascism thrives on ignorance and apathy.** Get smart, study your history, and learn how to care for yourself and your community. **If you can't fight the monster, tend the garden.** 
 

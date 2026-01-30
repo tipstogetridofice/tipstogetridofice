@@ -10,6 +10,11 @@
 > ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
+
+# ***Table of Contents*** 
+```table-of-contents
+```
+
 # If You Need Food 
 - Minnesota 
 	- [Channel One Regional Food Bank](https://www.helpingfeedpeople.org/programs/food-shelf/) serves southeastern Minnesota and western Wisconsin (https://www.helpingfeedpeople.org/programs/food-shelf/). 
