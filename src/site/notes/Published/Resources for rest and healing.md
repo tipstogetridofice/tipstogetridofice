@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/published/get-heated-become-inspired/"}
+{"dg-publish":true,"permalink":"/published/resources-for-rest-and-healing/"}
 ---
 
 > [!NOTE] Navigation
@@ -14,7 +14,3 @@
 # ***Table of Contents*** 
 ```table-of-contents
 ```
-
-# Historic Victories, Recent Wins, Quotes to inspire a Better Future 
-### Central Minnesota's FYJ, a Latinx-led nonprofit, advocated for the Driver's License for All Act 
-"On March 7, 2023, Governor Tim Walz signed the Driver's License for All law. This law will allow undocumented immigrants to obtain a driver's license in the state of Minnesota. This law came into effect on October 1, 2023." ([Source](https://www.feyjusticiamn.com/legislation-victories))

@@ -5,7 +5,7 @@
 > [!NOTE] Navigation
 > ⬅️ Return to the [[Published/Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[Published/In need of help? Click here.\|In need of help? Click here.]]
-> ➡️ [[Published/Throw Salt — Direct Action/Direct Actions\|Direct Actions to take NOW]]
+> ➡️ [[Published/Direct Actions\|Direct Actions to take NOW]]
 > ➡️ [[Published/Educational Materials\|Educational Materials]]
 > ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
