@@ -2,24 +2,24 @@
 {"dg-publish":true,"permalink":"/published/tips-to-get-ride-of-ice/","tags":["gardenEntry"]}
 ---
 
-![UnfreezePfp.png](/img/user/UnfreezePfp.png)
+# ❗️[[Published/In need of help? Click here.\|In need of help? Click here.]] ❗️
 
-Lots of ICE in your community? Watching recent events unfold from afar? I frequently feel paralyzed, overwhelmed, and powerless — in other words, **frozen**. Education, motivation, and actionable tasks are all crucial for getting oneself unfrozen, and the more of us there are bringing the heat, the easier it is to melt the ICE. Every drop counts.
+![Unfreezeheader2.png](/img/user/Original%20Media/Unfreezeheader2.png)
 
-This archive collects & regularly updates vetted resources useful for melting the ICE, including direct calls-to-action (organized according to financial or geographical requirements), inspirational stories or materials, and learning materials. **We're not all financially able to donate or physically able to protest, but there is something everyone can do right now.** Fascism thrives on disorganization, ignorance, and overwhelm. **Community connection and action are the enemies of fascism.** This archive is updated **daily.** 
+# Feeling frozen? Unsure how to help? 
+Fascism thrives on inaction, ignorance, and apathy. Don't let it win. There are many different ways to get rid of ICE. 
 
-Have a resource to submit? Email me at unfreezeyourself@proton.me
-- Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible. 
-# ❗️[[Published/If you are in need, Click here\|If you are in need, Click here]] ❗️
 ---
-# Helplines 
-- Call/text [MONARCA](https://monarcamn.org/) **+1 612-441-2881** (Minneapolis / the Twin Cities)
+## 🧯 Fight Inaction: [[Published/Throw Salt — Direct Action/Direct Actions\|Direct Actions to take NOW]]
+Even if you aren't physically or financially able to attend protests or donate, there are still many ways you can help. Updated weekdays.  
+## 🍎 Fight Ignorance: [[Published/Defrost — Educational Materials/Educational Materials\|Educational Materials]]
+Educate yourself and teach others. Practical information to help you and your community understand the present moment, your rights, and what you can do. 
+## 🔥 Fight Apathy: [[Published/Get Heated — Inspiration/Get Heated, Become Inspired\|Get Heated, Become Inspired]]
+ It's important to remember our past, share and manage information about the present movement, and imagine a hopeful future through stories, fiction, artwork, poetry, and music. 
+
+**Warning: You are our most important resource, and this is a marathon, not a sprint. Give yourself time to rest. Don't know how to unplug? Here are some [[Resources for rest and healing\|Resources for rest and healing]].** 
+
+---
+# ☎️ Helplines 
+- [Monarca](https://monarcamn.org/) (the Twin Cities, MN, USA): Call or text **+1 612-441-2881** 
 	- A rapid-response line that **can receive photo evidence.**
----
-### ❗️Unfreeze's [[Published/Throw Salt — Direct Action/High-Priority Actions\|High-Priority Actions]]
-### ➡️ [[Published/Throw Salt — Direct Action/Throw Salt, a Direct Action Masterlist\|Masterlist of Direct Actions to take NOW]]
-### ➡️ [[Published/Throw Salt — Direct Action/Events/Masterlist of Events\|Masterlist of Events]], by geographical region. 
-### ➡️ [[Published/Defrost — Educational Materials/Defrost, a Masterlist of Educational Materials\|Masterlist of Informative Resources]]
-### ➡️ [[Published/Get Heated — Inspiration/Get Heated, Become Inspired\|Get Heated, Become Inspired]], success stories and motivation
-
----
