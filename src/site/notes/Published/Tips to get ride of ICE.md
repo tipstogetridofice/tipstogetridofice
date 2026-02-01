@@ -18,7 +18,7 @@ Educate yourself and teach others. Practical information to help you and your co
  It's important to remember our past, share and manage information about the present movement, and imagine a hopeful future through stories, fiction, artwork, poetry, and music. 
 
 **Warning: You are our most important resource, and this is a marathon, not a sprint. Be strategic about how you spend your time, attention, and money.** 
-Not everyone has the privilege to be able to step away. Learn how to care for yourself and others using this list of[[Published/Resources for rest and healing\|Resources for rest and healing]].** 
+Not everyone has the privilege to be able to step away. Learn how to care for yourself and others using this list of [[Published/Resources for rest and healing\|Resources for rest and healing]].** 
 
 ---
 # ☎️ Helplines 
