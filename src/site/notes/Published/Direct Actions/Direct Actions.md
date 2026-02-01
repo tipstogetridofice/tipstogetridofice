@@ -13,14 +13,15 @@
 ## A Direct Action Masterlist 
 Direct action is the bread and butter of resistance, but oftentimes it can feel intimidating, overwhelming, or confusing.  
 ##### It's important to remember that not all of us have the privilege to step away. 
-
-Outlined below, you can find **tasks you can do *right now*** (or in the near future) that will directly contribute to those working on the front lines. Tasks are organized by whether they are free or paid, in-person or online, or an event you can attend. 
+Outlined below, you can find **tasks you can do *right now*** (or in the near future) that will directly contribute to those working on the front lines.
 
 This page is updated daily. 
 
 ---
 ### 🐦‍🔥 High-Priority and/or High-Need 
 - [[Published/Educational Materials/Know Your Rights\|Know Your Rights]] — Read this webpage and/or the cited sources; familiarize yourself with your rights and the rights of your community members. 
+- Buy safety whistles for Minnesota using this verified [Amazon wish list](https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share) ([source](https://linktr.ee/mn50501mutualaid)) (https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share) 
+- Keep ICE out of local law enforcement by flooding ICE's official government email, [ERO287g@ice.dhs.gov](mailto:ERO287g@ice.dhs.gov). Don't let this email be functional. 
 
 ### 🧑‍💻 [[Published/Direct Actions/Free, Online, Digital, or Remote Support Needed\|Free, Online, Digital, or Remote Support Needed]]
 ### 🌻 [[Published/Direct Actions/Financial Support Needed\|Financial Support Needed]] 

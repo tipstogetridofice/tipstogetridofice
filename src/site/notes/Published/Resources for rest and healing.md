@@ -11,6 +11,11 @@
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
 
+# Resources for Restoration and Healing 
+## Events 
+### Wednesdays 
+- [Minneapolis Community Processing](https://www.internamentalhealth.com/community/p/minneapolis-community-processing) (online, video call, free) (https://www.internamentalhealth.com/community/p/minneapolis-community-processing) 
+
 
 > [! A Note on Sources]
 > Unfreeze is run by one fallible human. I do my best to cite & verify information from multiple sources, but I can and will make mistakes. Inform me of my mistakes by reaching out @tipstogetridofice on [Tumblr](https://www.tumblr.com/tipstogetridofice) or [Bluesky](https://bsky.app/profile/tipstogetridofice.bsky.social), or email me at unfreezeyourself@proton.me. 

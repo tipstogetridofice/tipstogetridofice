@@ -23,6 +23,7 @@ We're so happy you're here. What do you need?
 	- Immigrant Defense Network (IDN) (ICE activity reporting): 612-255-3112 ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0))
 	- Monarca Rapid Response Line (ICE activity reporting): 612-441-2881  ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0))
 	- Monarca Legal Q&A & Referrals: 651-372-8642 ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0))
+	- The Legal Rights Center's First Defense Hotline: **612-200-0844** ([source](https://legalrightscenter.org/firstdefense/))
 ### Helping a Detainee 
 - A detained US Citizen: US citizens are typically processed separately from those of different immigration status — most often, they are **released within a few hours.** Calling the NLG hotline is still recommended: **612-444-2654** ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0))
 - A detained Lawful Permanent Resident (LPR): loved ones should immediately complete the Habeas Project intake form, which mobilizes lawyers, legal workers, and law students to file habeas petitions quickly. ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0))
@@ -33,6 +34,12 @@ We're so happy you're here. What do you need?
 - St. Paul, MN's Mexican consulate: **651-772-4417 or 651-334-8562**
 -  [Monarca](https://monarcamn.org/) (the Twin Cities, MN, USA): Call or text **+1 612-441-2881** 
 	- A rapid-response line that **can receive photo evidence.**
+### Legal Services 
+- Financial assistance posting your bond 
+	- [MIBF](https://www.mibfc.org/gethelp) posts bonds for residents of **Illinois, Indiana, Minnesota, Wisconsin, and Kentucky** (or individuals who intend to live in one of these states upon release) regardless of where they are detained. MIBF also posts bonds for **people detained by ICE in facilities in Indiana, Minnesota, Wisconsin, and Kentucky** regardless of their residency. (https://www.mibfc.org/gethelp, In English y Español)
+	- [List of Community-led Bail and Bond Funds](https://bit.ly/localbailfunds) (https://bit.ly/localbailfunds)
+		- Lists **Bail and Bond Funds by State (scroll down)**
+- Minnesota [Immigration Attorney Referral](https://docs.google.com/spreadsheets/d/1lXvPVKhZMYUO4NzykVr1ZenCTDnZBYmz/edit?gid=1422338906#gid=1422338906) List (https://docs.google.com/spreadsheets/d/1lXvPVKhZMYUO4NzykVr1ZenCTDnZBYmz/edit?gid=1422338906#gid=1422338906) 
 ### Towing Services 
 - US
 	- Minnesota (MN) 

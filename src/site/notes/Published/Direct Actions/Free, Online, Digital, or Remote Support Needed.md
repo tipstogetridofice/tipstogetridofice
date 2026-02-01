@@ -10,6 +10,12 @@
 > ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
+#### Gum Up the Works 
+> [!Be Inconvenient, Slow, or Inefficient]
+> Fascism thrives on efficiency and speed to overwhelm the resistance. **Activists operating against the Third Reich dedicated time and effort towards slowing down administrative processes.**
+
+- Keep ICE out of local law enforcement by flooding ICE's official government email, [ERO287g@ice.dhs.gov](mailto:ERO287g@ice.dhs.gov). Don't let this email be functional. 
+> LEAs interested in becoming a law enforcement partner under the 287(g) Program must submit a signed Letter of Interest and signed MOA to ICE at [ERO287g@ice.dhs.gov](mailto:ERO287g@ice.dhs.gov). These forms can be found below. ([source](https://www.ice.gov/identify-and-arrest/287g))
 #### Coordination, Legal, Translation, Tech Support, Admin 
 -  **[Sign up to be a carer](https://www.jotform.com/form/260126904111141)** servicing Minneapolis / the Twin Cities (https://www.jotform.com/form/260126904111141) if you're willing to offer: P
 	- Shopping and/or delivery of supplies 

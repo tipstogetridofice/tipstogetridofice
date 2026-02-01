@@ -11,6 +11,8 @@
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
 
+# General Info 
+- [Know Your Rights infographic](https://www.immigrantdefenseproject.org/know-your-rights-with-ice/?utm_content=&utm_medium=email&utm_name=&utm_source=govdelivery&utm_term=) (for multiple situations)(https://www.immigrantdefenseproject.org/know-your-rights-with-ice/?utm_content=&utm_medium=email&utm_name=&utm_source=govdelivery&utm_term=). 
 # Scripts 
 ## Calling 9-1-1
 [Source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) [En Español](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om)
@@ -52,6 +54,19 @@ If asked:
 - Observers must not interfere but can record from a safe public distance.**
 # Know Your Rights 
 [Source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) [En Español](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om)
+## Parental Rights & ICE 
+- Read the [Center for Law and Social Policy's document](https://www.clasp.org/publications/fact-sheet/know-your-rights-parents-detained-by-ice/) on what parents detained by ICE need to know. (https://www.clasp.org/publications/fact-sheet/know-your-rights-parents-detained-by-ice/). Central takeaways: 
+	- You have the right to make decisions about the care and custody of your child at the time of arrest.
+	- You have the right to be kept near your child and stay in touch with them while detained.
+	- You can ask for help in most detention centers to help you make plans for your children.
+	- You can be part of your child’s welfare court case while you are in ICE detention.
+	- You can decide whether your child will remain in the U.S. and make alternative  care arrangements.
+## Is ICE Working with the Police? 
+- ICE is not working with state and/or local police forces in all states. You can check your state's status [here](https://www.ice.gov/identify-and-arrest/287g) (https://www.ice.gov/identify-and-arrest/287g). 
+	- By visiting that webpage and clicking the VIEW PARTICIPATING AGENCIES or VIEW PENDING AGENCIES buttons, you can also see your specific county and whether it is participating. 
+	- **As of Feb., 2026, California, Oregon, Washington State, Illinois, New Jersey, and Connecticut have laws in place that restrict the federal government's ability to enact an agreement between ICE and local law enforcement.**
+> The Illegal Immigration Reform and Immigrant Responsibility Act of 1996 added Section 287(g) to the Immigration and Nationality Act (INA), authorizing U.S. Immigration and Customs Enforcement (ICE) to delegate state and local law enforcement officers the authority to perform specified immigration officer functions under ICE’s direction and oversight ([source](https://www.ice.gov/identify-and-arrest/287g)). 
+- Effectively states that ICE has the ability to deputize local and state-wide law enforcement. 
 ## If ICE Comes to Your Home 
 [Source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) [En Español](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om)
 You have the strongest rights at your home. ICE often lies or pressures people into opening the door.
@@ -147,3 +162,4 @@ You may request that your consulate be notified.
 > **I am not a lawyer or a doctor. The information contained on this website is for informational purposes only and does not constitute legal, medical, or professional advice.**
 
 - MN Emergency Legal Guide / Guía de Emergencia Legal https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.7mh0e19u9ecu
+- ice.gov's official webpage https://www.ice.gov/identify-and-arrest/287g
