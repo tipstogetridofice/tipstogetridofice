@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/published/resources-for-rest-and-healing/"}
+{"dg-publish":true,"permalink":"/published/direct-actions/get-prepared/get-prepared-steps-to-take-just-in-case/"}
 ---
 
 > [!NOTE] Navigation
@@ -10,6 +10,16 @@
 > ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
+
+# Preparation Guides 
+## Prepare Yourself
+### Workers should carry (if safe to do so):
+- A KNOW-YOUR-RIGHTS card
+- Emergency phone numbers for a lawyer / rapid response
+- A plan for child care or emergencies
+- A “red folder” at home with key documents so family can find them if needed
+[Source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) 
+### [[Published/Direct Actions/Get Prepared/Prepare Your Workplace\|Prepare Your Workplace]]
 
 
 > [! A Note on Sources]
