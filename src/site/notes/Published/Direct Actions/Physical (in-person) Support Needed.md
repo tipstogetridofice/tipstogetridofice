@@ -27,8 +27,4 @@
 	- Coordination / Organization 
 	- Vetting new volunteers 
 	- Other 
--   [Shakopee Ice Patrol](https://www.signupgenius.com/go/20F0E4CADA723A0F85-61248119-shako#/) (https://www.signupgenius.com/go/20F0E4CADA723A0F85-61248119-shako#/) (currently closed) 
-	- DISPATCH: Work from office or home and coordinate patrol. Needs to have EXCELLENT knowledge of Shakopee, the roads, and patterns in our community. Must have completed an ICE training.
-	- PATROL: Drive in a zone checking known hotspots and verifying ICE sitings. Repond as an ICE Observer during ICE activities. We are now joint with Shakopee & Prior Lake / Savage patrol. There are shifts available for each area.
-	- FOOD PACKING AND DELIVERY: Usually picking up and dropping off food and supplies in Shakopee. But some shifts are picking up in other places to deliver in and around Shako. Check your email for details after signup.
 -  Volunteer at the [Channel One Regional Food Back ](https://www.helpingfeedpeople.org/volunteer/) (https://www.helpingfeedpeople.org/volunteer/). 

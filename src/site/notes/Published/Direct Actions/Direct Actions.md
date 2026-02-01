@@ -11,7 +11,10 @@
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
 ## A Direct Action Masterlist 
-Direct action is the bread and butter of resistance, but oftentimes it can feel intimidating, overwhelming, or confusing. Outlined below, you can find **tasks you can do *right now*** (or in the near future) that will directly contribute to those working on the front lines. Tasks are organized by whether they are free or paid, in-person or online, or an event you can attend. 
+Direct action is the bread and butter of resistance, but oftentimes it can feel intimidating, overwhelming, or confusing.  
+##### It's important to remember that not all of us have the privilege to step away. 
+
+Outlined below, you can find **tasks you can do *right now*** (or in the near future) that will directly contribute to those working on the front lines. Tasks are organized by whether they are free or paid, in-person or online, or an event you can attend. 
 
 This page is updated daily. 
 

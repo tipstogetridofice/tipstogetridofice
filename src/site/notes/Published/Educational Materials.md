@@ -11,12 +11,14 @@
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 > - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
 ## Educational Materials 
-Perhaps you don't have the time, energy, or bandwidth for direct action right now. **Fascism thrives on ignorance and apathy.** Get smart, study your history, and learn how to care for yourself and your community. **If you can't fight the monster, tend the garden.** 
+Not everyone is physically able to attend protests or financially able to support organizations — but there's still more you can do. We need to build a better future, and prevent this from ever happening again. Get smart, study your history, and learn how to care for yourself and your community. **If you can't fight the monster, tend the garden.** 
 ### Trainings & Events (Updated Daily)
-#### 30 Jan., 2026 — the Twin Cities, MN, USA
-- [Community meeting in Waite Park / Reunión comunitaria en Waite Park](https://www.feyjusticiamn.com/events/community-meeting-in-waite-park-reunion-comunitaria-en-waite-park) 5:30 PM – 7:30 PM St. Joseph Church basement , 106 7th Ave N, Waite Park, MN 56387. [RSVP Here](https://www.feyjusticiamn.com/event)
-#### 12 Feb., 2026 — the Twin Cities, MN, USA
-- 6:00 PM Monarca Upstander Training (sign up here https://monarcamn.org/training)
+#### 12 Feb., 2026 — 6:00 PM, St. Louis Park, MN, USA
+- Monarca Upstander Training (sign up here https://monarcamn.org/training)
+#### 15 Feb., 2026 — 2:00 PM, St Croix Falls, WI, USA
+- Monarca Upstander Training (sign up here https://monarcamn.org/training)
+#### 03 Mar., 2026 — 10:00 AM, Cable, WI, USA
+- Monarca Upstander Training (sign up here https://monarcamn.org/training)
 ### Strategies & Tactics 
 - Familiarize yourself and your community with [Monarca's whistle safety zine](https://cryptpad.fr/file/#/2/file/170HgImVipTfXzJ6KjLMokKJ/). (https://cryptpad.fr/file/#/2/file/170HgImVipTfXzJ6KjLMokKJ/)
 ### Models, Templates, etc

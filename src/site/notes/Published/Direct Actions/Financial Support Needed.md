@@ -24,6 +24,7 @@
 -  [Fe Y Justica](https://www.feyjusticiamn.com/) (https://www.feyjusticiamn.com/), a Latinx-led non-profit organization — scroll to the bottom of their webpage for donation links.
 - Host or Support a Virtual Food Drive for [Channel One Regional Food Bank](https://www.helpingfeedpeople.org/donate/virtual-food-drive/)  (https://www.helpingfeedpeople.org/donate/virtual-food-drive/). 
 - The [ACLU](https://www.aclu.org/artistic-expression-banned-books) (https://www.aclu.org/artistic-expression-banned-books) 
+- The [March Campaign](https://gmcc.org/march-campaign/) for MN Food Share (https://gmcc.org/march-campaign/)
 #### Supplies
 -  Verified [Amazon wish list](https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share) ([source](https://linktr.ee/mn50501mutualaid)) of safety emergency whistles (https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share). $12.99 per order. 
 -  **[Sign up to be a carer**](https://www.jotform.com/form/260126904111141) servicing Minneapolis / the Twin Cities(https://www.jotform.com/form/260126904111141) if you're willing to offer: 
