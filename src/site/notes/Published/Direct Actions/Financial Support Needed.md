@@ -7,14 +7,13 @@
 > 🆘 [[Published/In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Published/Direct Actions/Direct Actions\|Direct Actions to take NOW]]
 > ➡️ [[Published/Educational Materials/Educational Materials\|Educational Materials]]
-> ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
+> ➡️ [[Published/Wins & Successes\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
-> - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
 #### Funding Lists 
 - Twin Cities Verified list of [Mutual Aid Funds & Food Drives](https://linktr.ee/mn50501mutualaid) (https://linktr.ee/mn50501mutualaid). 
 #### Mutual Aid Funds 
 -  Twin Cities Verified list of [Mutual Aid Funds & Food Drives](https://linktr.ee/mn50501mutualaid) (https://linktr.ee/mn50501mutualaid). 
-#### Organizations 
+#### Organizations in need of Funding
 
 > [! A Note on Donations]
 > While one-time donations are amazing, **recurring donations** provide aid organizations stable, dependable funding, even when their work is no longer in the news. Consider providing even a **small monthly donation** if you can. 
@@ -30,6 +29,9 @@
 - [Midwest Immigration Bond Fund](https://www.mibfc.org/helpusgrow) supports bail and bonds across the midwestern US, particular in response to those detained by ICE (https://www.mibfc.org/helpusgrow). 
 - The [Legal Rights Center](https://legalrightscenter.org/donate/) provides free legal counsel across Minnesota. (https://legalrightscenter.org/donate/) 
 	- You can instead purchase some of their [merch](https://legalrightscenter.org/shop/)! (https://legalrightscenter.org/shop/) 
+- [The IRAP](https://give.refugeerights.org/campaign/607248/donate), who are providing legal aid in a number of active cases against the Trump administration, fighting against the unlawful behavior of ICE agents. (https://give.refugeerights.org/campaign/607248/donate)
+- The [Center for Human Rights and Constitutional Law](https://www.centerforhumanrights.org/donate) provides workshops, resources, and class action lawsuits in support of improving immigration law & practices in the US. (https://www.centerforhumanrights.org/donate) 
+- [The Advocates for Human Rights](https://www.theadvocatesforhumanrights.org/Donate) provide legal support in various ways to refugees, survivors of human trafficking and gender-based violence, and more. 
 #### Supplies
 -  Verified [Amazon wish list](https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share) ([source](https://linktr.ee/mn50501mutualaid)) of safety emergency whistles (https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share). $12.99 per order. 
 -  **[Sign up to be a carer**](https://www.jotform.com/form/260126904111141) servicing Minneapolis / the Twin Cities(https://www.jotform.com/form/260126904111141) if you're willing to offer: 

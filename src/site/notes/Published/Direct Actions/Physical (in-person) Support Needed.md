@@ -7,15 +7,20 @@
 > 🆘 [[Published/In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Published/Direct Actions/Direct Actions\|Direct Actions to take NOW]]
 > ➡️ [[Published/Educational Materials/Educational Materials\|Educational Materials]]
-> ➡️ [[Published/Get Heated, Become Inspired\|inspiration]]
+> ➡️ [[Published/Wins & Successes\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
-> - Where possible, cite your source(s) so I can vet them before posting. Personal or identifying data will be anonymized to protect the privacy of those involved where necessary/possible.
+# Be Present: In-person ways to support 
+Movements need visibility, and they need people physically present, doing the work. Here are ways that you can show up for your community (organized geographically). 
 #### US 
+- Opportunity for legal professionals to [take on pro bono cases](https://www.theadvocatesforhumanrights.org/Volunteer/Represent) for refugees, unaccompanied children, trafficking survivors, detained immigrants, etc. (https://www.theadvocatesforhumanrights.org/Volunteer/Represent) 
 ##### Minnesota 
 - Paint a bowl for Empty Bowls 2026 (https://www.helpingfeedpeople.org/empty-bowls/). 
-- 01 Mar.–06 April, 2026, Food Share March Campaign to re-stock food banks (https://gmcc.org/march-campaign/). 
+- 01 Mar.–06 April, 2026, Join the Food Share March Campaign to re-stock food banks (https://gmcc.org/march-campaign/). 
+- [Receive training & volunteer as a Court Watcher](https://www.theadvocatesforhumanrights.org/Volunteer/Immigration_Court) for in-person Fort Snelling Immigration Court hearings to ensure due process. 
+- Need for volunteers to[ translate documents and interpret](https://www.theadvocatesforhumanrights.org/Volunteer/Interpret) during in-person meetings or interviews (https://www.theadvocatesforhumanrights.org/Volunteer/Interpret) 
 ###### Minneapolis / The Twin Cities 
 - Volunteer (14+, no experience required) for [Cavalry Food Shelf](https://www.calvaryfoodshelf.org/volunteer) (https://www.calvaryfoodshelf.org/volunteer).  
+- Need for [volunteer photographers in Minneapolis](https://www.theadvocatesforhumanrights.org/Volunteer/Photographer) to document the work of The Advocates for Human Rights. 
 - [This verified linktree](https://linktr.ee/mn50501mutualaid) keeps (relatively) up-to-date lists of ongoing food drives, fundraisers, and resources in Minneapolis (https://linktr.ee/mn50501mutualaid). 
 -  **[Sign up to be a carer**](https://www.jotform.com/form/260126904111141) (https://www.jotform.com/form/260126904111141) if you're willing to offer: 
 	- Shopping and/or delivery of supplies 
@@ -28,6 +33,7 @@
 	- Vetting new volunteers 
 	- Other 
 -  Volunteer at the [Channel One Regional Food Back ](https://www.helpingfeedpeople.org/volunteer/) (https://www.helpingfeedpeople.org/volunteer/). 
+- Volunteer to be [administrative staff](https://www.theadvocatesforhumanrights.org/Volunteer/Office) at The Advocates for Human Rights in their downtown Minneapolis office. (https://www.theadvocatesforhumanrights.org/Volunteer/Office) 
 
 
 > [! A Note on Sources]
