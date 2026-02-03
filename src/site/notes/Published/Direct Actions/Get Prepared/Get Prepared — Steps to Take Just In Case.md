@@ -6,31 +6,29 @@
 > ⬅️ Return to the [[Published/Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[Published/In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Published/Direct Actions/Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[Published/Educational Materials/Educational Materials\|Educational Materials]]
+> ➡️ [[Published/Educational Materials/How-to Guides for the Revolution\|How-to Guides for the Revolution]]
 > ➡️ [[Published/Wins & Successes\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 # Preparation Guides 
 Guides and resources detailing documents to have ready, safety measures to take, and other ways you can keep yourself, your family, your employees, and your community safe. 
 ## Prepare Yourself
-[Source 1](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) [Source 2](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.tjdzeq2noxmh). 
+[Source 1](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) [Source: IRAP](https://support.iraplegalinfo.org/hc/en-us/articles/43974720166420-I-live-in-the-US-and-I-have-refugee-status-What-should-I-know#h_01KBDXWTZ5B2RFWA9ZQN2HH2TC)
 - Print & carry a KNOW-YOUR-RIGHTS card 
-	- [[Know Your Rights\|Know Your Rights]] has a summary of your rights, but a printable card can be found at [this link](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) 
+	- You can find a printable card at [this link](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) 
 - Keep handy emergency phone numbers for a lawyer / rapid response 
 	- Can be found in [[Published/In need of help? Click here.\|assistance, aid, and help]]. 
 - Make a plan for child care or emergencies 
-- Enlist a trust family member or friend as your point person in case of an emergency. 
+- Enlist a trusted family member or friend as your point person in case of an emergency. 
 - Prepare a “red folder” at home with key documents so family can find them if needed 
-- **If you have refugee status, you should keep COPIES (not originals) of the following documents on hand ([Source: IRAP](https://support.iraplegalinfo.org/hc/en-us/articles/43974720166420-I-live-in-the-US-and-I-have-refugee-status-What-should-I-know#h_01KBDXWTZ5B2RFWA9ZQN2HH2TC)):**
+- **If you have refugee status, you should keep COPIES (not originals) of the following documents on hand:**
 	- I-94 (Arrival/Departure record)
 	- Transportation Boarding Letter (or boarding foil) 
 	- Employment Authorization Document, or “work permit” card
 	- If you have applied for your green card, evidence of your pending green card application (such as your I-797C “Receipt Notice”)
-### Prepare Your Workplace
-This is split off into a new page because it was getting too long. A guide to how you can secure your workplace, and what rights you and your employer have in the event of an ICE raid. 
-# Make Your Workplace Safe 
-[Source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) [En Español](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om)
+# Prepare Your Workplace
+[Source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om)
 - ICE cannot enter a private business without a signed warrant. You have similar rights as you would have in your home. 
-- **Even outdoor / ambiguously-defined work sites, such as construction sites, can be marked as private workplaces.** To do so, employers can: 
+- **Even outdoor / ambiguously-defined work sites, such as construction sites, can be marked as private workplace.** To do so, employers can: 
 	- Put up “Private Worksite — Authorized Personnel Only” signs.
 	- Use cones, caution tape, or portable fencing to clearly mark the boundary.
 	- Have a policy that all visitors must check in at the office or trailer.

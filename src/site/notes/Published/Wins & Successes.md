@@ -6,7 +6,7 @@
 > ⬅️ Return to the [[Published/Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[Published/In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Published/Direct Actions/Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[Published/Educational Materials/Educational Materials\|Educational Materials]]
+> ➡️ [[Published/Educational Materials/How-to Guides for the Revolution\|How-to Guides for the Revolution]]
 > ➡️ [[Published/Wins & Successes\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 ## Historic Victories, Recent Wins, Quotes to inspire a Better Future 
@@ -15,8 +15,6 @@
 ### Restraining Order Issued in U.H.A v. Bondi
 ##### Status: - **January 28, 2026:** Court issues [order](https://e1.nmcdn.io/assets/irap/wp-content/uploads/2026/01/ECF-041-Order-granting-TRO.pdf) granting Plaintiffs’ motion for a temporary restraining order.
 ##### Background: 
-> IRAP is counsel in a lawsuit representing a group of refugees who seek to bring the case as a class action on behalf of themselves and similarly situated refugees in Minnesota.  The plaintiffs are seeking to end DHS’s illegal policy of arresting and detaining lawfully present refugees.
-> Plaintiffs and their families were lawfully admitted to the United States through the U.S. Refugee Admissions Program (“USRAP”) after comprehensive security vetting and are not subject to any ground of removability under the Immigration and Nationality Act (“INA”). Still, they are being subjected to or fear DHS’s illegal, discriminatory, and cruel policy of refugee detention.
 > While the full impact of the policy is unknown at this time, we estimate that more than 100 refugees, including children, have been subject to unlawful arrests, detentions and interrogations under this policy, and that DHS plans to subject many hundreds if not thousands more to the same unlawful treatment. This lawsuit aims to protect all refugees in Minnesota who have been detained or are at risk of detention pursuant to DHS’s policy.
 ##### Support the IRAP with your [donation](https://give.refugeerights.org/campaign/607248/donate) so they can continue their important legal work. 
 

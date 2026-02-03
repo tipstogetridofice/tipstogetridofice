@@ -6,13 +6,13 @@
 > ⬅️ Return to the [[Published/Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[Published/In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Published/Direct Actions/Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[Published/Educational Materials/Educational Materials\|Educational Materials]]
+> ➡️ [[Published/Educational Materials/How-to Guides for the Revolution\|How-to Guides for the Revolution]]
 > ➡️ [[Published/Wins & Successes\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 # Be Present: In-person ways to support 
 Movements need visibility, and they need people physically present, doing the work. Here are ways that you can show up for your community (organized geographically). 
 #### US 
-- Opportunity for legal professionals to [take on pro bono cases](https://www.theadvocatesforhumanrights.org/Volunteer/Represent) for refugees, unaccompanied children, trafficking survivors, detained immigrants, etc. (https://www.theadvocatesforhumanrights.org/Volunteer/Represent) 
+- Opportunity for **legal professionals to [take on pro bono cases](https://www.theadvocatesforhumanrights.org/Volunteer/Represent) f**or refugees, unaccompanied children, trafficking survivors, detained immigrants, etc. (https://www.theadvocatesforhumanrights.org/Volunteer/Represent) 
 ##### Minnesota 
 - Paint a bowl for Empty Bowls 2026 (https://www.helpingfeedpeople.org/empty-bowls/). 
 - 01 Mar.–06 April, 2026, Join the Food Share March Campaign to re-stock food banks (https://gmcc.org/march-campaign/). 
@@ -20,7 +20,7 @@ Movements need visibility, and they need people physically present, doing the wo
 - Need for volunteers to[ translate documents and interpret](https://www.theadvocatesforhumanrights.org/Volunteer/Interpret) during in-person meetings or interviews (https://www.theadvocatesforhumanrights.org/Volunteer/Interpret) 
 ###### Minneapolis / The Twin Cities 
 - Volunteer (14+, no experience required) for [Cavalry Food Shelf](https://www.calvaryfoodshelf.org/volunteer) (https://www.calvaryfoodshelf.org/volunteer).  
-- Need for [volunteer photographers in Minneapolis](https://www.theadvocatesforhumanrights.org/Volunteer/Photographer) to document the work of The Advocates for Human Rights. 
+- Need for **[volunteer photographers** in Minneapolis](https://www.theadvocatesforhumanrights.org/Volunteer/Photographer) to document the work of The Advocates for Human Rights. 
 - [This verified linktree](https://linktr.ee/mn50501mutualaid) keeps (relatively) up-to-date lists of ongoing food drives, fundraisers, and resources in Minneapolis (https://linktr.ee/mn50501mutualaid). 
 -  **[Sign up to be a carer**](https://www.jotform.com/form/260126904111141) (https://www.jotform.com/form/260126904111141) if you're willing to offer: 
 	- Shopping and/or delivery of supplies 

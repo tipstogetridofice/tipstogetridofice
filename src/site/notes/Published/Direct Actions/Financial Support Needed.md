@@ -6,7 +6,7 @@
 > ⬅️ Return to the [[Published/Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[Published/In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Published/Direct Actions/Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[Published/Educational Materials/Educational Materials\|Educational Materials]]
+> ➡️ [[Published/Educational Materials/How-to Guides for the Revolution\|How-to Guides for the Revolution]]
 > ➡️ [[Published/Wins & Successes\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 #### Funding Lists 

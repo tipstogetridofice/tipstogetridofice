@@ -6,7 +6,7 @@
 > ⬅️ Return to the [[Published/Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[Published/In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Published/Direct Actions/Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[Published/Educational Materials/Educational Materials\|Educational Materials]]
+> ➡️ [[Published/Educational Materials/How-to Guides for the Revolution\|How-to Guides for the Revolution]]
 > ➡️ [[Published/Wins & Successes\|inspiration]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 ## Find What You Need 
@@ -23,7 +23,7 @@ We're so happy you're here. What do you need?
 	- Monarca Rapid Response Line (ICE activity reporting): 612-441-2881  ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0))
 	- Monarca Legal Q&A & Referrals: 651-372-8642 ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0))
 	- The Legal Rights Center's First Defense Hotline: **612-200-0844** ([source](https://legalrightscenter.org/firstdefense/))
-	- To help a detainee, call the NLG Hotline 612-444-2654
+	- To help a detainee, call the NLG Hotline 612-444-2654 ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0))
 ### Helping a Detainee 
 - In Minnesota: 
 	- If someone has just been detained by ICE and has not yet been transferred to Whipple or out of Minnesota, there is a narrow window to act. **Whether a family member, Next Friend, or attorney is contacted first, the following information should be gathered as quickly as possible to allow immediate habeas filing ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0)):
@@ -48,6 +48,8 @@ We're so happy you're here. What do you need?
 - St. Paul, MN's Mexican consulate: **651-772-4417 or 651-334-8562**
 -  [Monarca](https://monarcamn.org/) (the Twin Cities, MN, USA): Call or text **+1 612-441-2881** 
 	- A rapid-response line that **can receive photo evidence.**
+- Front Line Defenders (for Human Rights Defenders) **+353-1-210-0489**
+	- Or via this [Secure Contact Form](https://www.frontlinedefenders.org/en/secure/comment.php?l=en)
 ### Legal Services 
 - Financial assistance posting your bond 
 	- [MIBF](https://www.mibfc.org/gethelp) posts bonds for residents of **Illinois, Indiana, Minnesota, Wisconsin, and Kentucky** (or individuals who intend to live in one of these states upon release) regardless of where they are detained. MIBF also posts bonds for **people detained by ICE in facilities in Indiana, Minnesota, Wisconsin, and Kentucky** regardless of their residency. (https://www.mibfc.org/gethelp, In English y Español)
@@ -61,7 +63,6 @@ We're so happy you're here. What do you need?
 		- Minneapolis / the Twin Cities 
 			- [GALEANA'S TOWING & SERVICES (612) 434-7655 (offering free towing to people in Minneapolis and surrounding cities)](https://www.yelp.com/biz/galeanas-towing-and-services-minneapolis)
 			- [Leo’s Tow](https://www.facebook.com/people/Leos-Tow/61584893709216/#) (651) 703-4914 (offering free towing for residents of West St. Paul, and a $100 discount to people in surrounding areas)
-
 
 > [! A Note on Sources]
 > Unfreeze is run by one fallible human. I do my best to cite & verify information from multiple sources, but I can and will make mistakes. Inform me of my mistakes by reaching out @tipstogetridofice on [Tumblr](https://www.tumblr.com/tipstogetridofice) or [Bluesky](https://bsky.app/profile/tipstogetridofice.bsky.social), or email me at unfreezeyourself@proton.me. 

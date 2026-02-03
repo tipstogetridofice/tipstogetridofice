@@ -12,7 +12,7 @@ Fascism thrives on inaction, ignorance, and apathy. Don't let it win. There are 
 ---
 ## 🧯 Fight Inaction: [[Published/Direct Actions/Direct Actions\|Direct Actions to take NOW]]
 Even if you aren't physically or financially able to attend protests or donate, there are still many ways you can help. Updated weekdays.  
-## 🍎 Fight Ignorance: [[Published/Educational Materials/Educational Materials\|Educational Materials]]
+## 🍎 Fight Ignorance: [[Published/Educational Materials/How-to Guides for the Revolution\|How-to Guides for the Revolution]]
 Educate yourself and teach others. Practical information to help you and your community understand the present moment, your rights, and what you can do. 
 ## 🔥 Fight Apathy: [[Published/Wins & Successes\|Wins & Successes]]
  It's important to remember our past, share and manage information about the present movement, and imagine a hopeful future through stories, fiction, artwork, poetry, and music. 
@@ -22,14 +22,14 @@ Educate yourself and teach others. Practical information to help you and your co
 Not everyone has the privilege to be able to step away. Learn how to care for yourself and others using this list of [[Published/Resources for rest and healing\|Resources for rest and healing]].
 
 ---
-# ☎️ Helplines 
+# ☎️  Helplines 
 - Minnesota's Detention Intake Hotline **651-641-1011**
 - St. Paul, MN's Mexican consulate: **651-772-4417 or 651-334-8562**
 -  [Monarca](https://monarcamn.org/) (the Twin Cities, MN, USA): Call or text **+1 612-441-2881** 
 	- A rapid-response line that **can receive photo evidence.**
 # 🚨 Report Abuse & Arrest 
 - If you observe or experience abuse or arrest **at a mandatory ICE check-in**, you email cdm@communityjusticeexchange.org
-## 🆘 If/When You are Detained by ICE 
+## 🆘  If/When You are Detained by ICE 
 [Source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) [En Español](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om)
 You ALWAYS have the right to:
 #### ✅ Remain Silent
