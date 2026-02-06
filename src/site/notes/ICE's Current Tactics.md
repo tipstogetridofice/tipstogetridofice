@@ -22,6 +22,11 @@
 - **This is unlawful. Legal advocacy groups are doing the hard work of pushing through class action lawsuits pushing back against these policies.**
 - ICE officers sometimes sign agreements with local law enforcement. Educate yourself on how your county is run, and by whom.
 - ICE has a history subjecting immigrants to "[digital prisons](https://www.communityjusticeexchange.org/en/resources-all/fact-sheet-on-ice-foia-lawsuit)" and [surveillance](https://www.communityjusticeexchange.org/en/resources-all/trackedamp-trapped-experiences-from-ice-digital-prisons) that effects lasting trauma and harm. 
+### If ICE approaches your vehicle
+- Remain calm, and keep your hands on the steering wheel. Comply with all orders quickly and calmly. 
+- ICE does not always give clear orders (see [[Aliya Rahman's Testimony\|Aliya Rahman's Testimony]]). Typically: 
+	- You may be asked (via shouted, unclear orders) to lower your window so they can speak with you 
+	- They may be carrying weapons, including a knife (used for cutting your seatbelt off of you if you resist) and various guns. 
 ### Am I being targeted? Risk Factors & Warning Signs 
 [source 1](https://docs.google.com/document/d/1bBCNIw1ISuc6OCT2A2FDcU_A_T7lXC378E_kyuVDk0c/edit?tab=t.r5votdo95gm)
 - If you receive unexpected calls asking you to report to your case manager, set up / attend unexpected appointments, or telling you that you are being removed and need to organize your departure, etc. 

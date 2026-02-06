@@ -16,7 +16,7 @@
 ### Restraining Order Issued in U.H.A v. Bondi
 ##### Status: - **January 28, 2026:** Court issues [order](https://e1.nmcdn.io/assets/irap/wp-content/uploads/2026/01/ECF-041-Order-granting-TRO.pdf) granting Plaintiffs’ motion for a temporary restraining order.
 ##### Background: 
-> While the full impact of the policy is unknown at this time, we estimate that more than 100 refugees, including children, have been subject to unlawful arrests, detentions and interrogations under this policy, and that DHS plans to subject many hundreds if not thousands more to the same unlawful treatment. This lawsuit aims to protect all refugees in Minnesota who have been detained or are at risk of detention pursuant to DHS’s policy.
+> We estimate that more than 100 refugees, including children, have been subject to unlawful arrests, detentions and interrogations under this policy, and that DHS plans to subject many hundreds if not thousands more to the same unlawful treatment. This lawsuit aims to protect all refugees in Minnesota who have been detained or are at risk of detention pursuant to DHS’s policy.
 ##### Support the IRAP with your [donation](https://give.refugeerights.org/campaign/607248/donate) so they can continue their important legal work. 
 
 ---

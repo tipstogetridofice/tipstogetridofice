@@ -32,6 +32,7 @@
 - [The IRAP](https://give.refugeerights.org/campaign/607248/donate), who are providing legal aid in a number of active cases against the Trump administration, fighting against the unlawful behavior of ICE agents. (https://give.refugeerights.org/campaign/607248/donate)
 - The [Center for Human Rights and Constitutional Law](https://www.centerforhumanrights.org/donate) provides workshops, resources, and class action lawsuits in support of improving immigration law & practices in the US. (https://www.centerforhumanrights.org/donate) 
 - [The Advocates for Human Rights](https://www.theadvocatesforhumanrights.org/Donate) provide legal support in various ways to refugees, survivors of human trafficking and gender-based violence, and more. 
+- [Frontline Defender](https://www.frontlinedefenders.org/en/donate)s provide workshops for Human Rights Defenders, as well as online resources for protection, safety, and activism. 
 #### Supplies
 -  Verified [Amazon wish list](https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share) ([source](https://linktr.ee/mn50501mutualaid)) of safety emergency whistles (https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share). $12.99 per order. 
 -  **[Sign up to be a carer**](https://www.jotform.com/form/260126904111141) servicing Minneapolis / the Twin Cities(https://www.jotform.com/form/260126904111141) if you're willing to offer: 

@@ -1,20 +1,22 @@
 ---
-{"dg-publish":true,"permalink":"/resources-for-rest-and-healing/"}
+{"dg-publish":true,"permalink":"/aliya-rahman-s-testimony/"}
 ---
 
 > [!NOTE] Navigation
 > ⬅️ Return to the [[Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[How-to Guides for the Revolution\|Learn from the past, present, or future]]
+> ➡️ [[How-to Guides for the Revolution\|How-to Guides for the Revolution]]
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
-# Resources for Restoration and Healing 
-## Events 
-### Wednesdays 
-- [Minneapolis Community Processing](https://www.internamentalhealth.com/community/p/minneapolis-community-processing) (online, video call, free)
-## Resources 
-- [Well-being Toolkit en Español](https://www.frontlinedefenders.org/en/well-being-toolkit-spanish)
+
+# Aliya Rahman is a disabled activist who was targeted by ICE while in her vehicle. 
+Listen to her testimony [here](https://bsky.app/profile/cwebbonline.com/post/3mdyev3c2rk2c) or [here](https://youtu.be/zSmRlXkq4J4?si=fviehj9A9VGwbUyr).  
+- She describes how she was violently removed from her vehicle, and how unclear orders were shouted at her. 
+- She stated that she is disabled (she has autism and has sustained a brain injury), and ICE officers replied "too late." 
+- She was taken to the Whipple building in Minneapolis, where she describes seeing "Black and brown bodies shackled together and being marched by yelling agents"
+- She reports, "you have no reason to believe you will make it out alive" 
+- She was **never charged with a crime.**
 
 
 > [! A Note on Sources]

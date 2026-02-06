@@ -30,7 +30,6 @@ Not everyone has the privilege to be able to step away. Learn how to care for yo
 # 🚨 Report Abuse & Arrest 
 - If you observe or experience abuse or arrest **at a mandatory ICE check-in**, you email cdm@communityjusticeexchange.org
 ## 🆘  If/When You are Detained by ICE, you have the right to: 
-[Source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om) [En Español](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om)
 #### ✅ Remain Silent
 You do not have to answer questions about immigration status, where you were born, or your entry history.
 #### ✅ Speak to an Attorney
@@ -42,6 +41,7 @@ You do not need to share your address or information about family members.
 #### ✅ Contact Your Consulate
 You may request that your consulate be notified.
 **Using these rights gives you TIME to get legal advice.** 
+[Source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0#heading=h.9q47kmni28om)
 
 > [! A Note on Sources]
 > Unfreeze is run by one fallible human. I do my best to cite & verify information from multiple sources, but I can and will make mistakes. Inform me of my mistakes by reaching out @tipstogetridofice on [Tumblr](https://www.tumblr.com/tipstogetridofice) or [Bluesky](https://bsky.app/profile/tipstogetridofice.bsky.social), or email me at unfreezeyourself@proton.me. 
