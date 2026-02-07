@@ -1,26 +1,16 @@
 ---
-{"dg-publish":true,"permalink":"/trainings-and-events-updated-daily/"}
+{"dg-publish":true,"permalink":"/digital-protection-measures/"}
 ---
 
 > [!NOTE] Navigation
 > ⬅️ Return to the [[Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[How-to Guides for the Revolution\|Learn from the past, present, or future]]
+> ➡️ [[How-to Guides for the Revolution\|How-to Guides for the Revolution]]
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 
-# Trainings & Events (updated daily)
-#### 09 Feb., 2026 — 6:00 PM, Golden Valley, MN, USA
-- Monarca Upstander Training (sign up here https://monarcamn.org/training)
-#### 12 Feb., 2026 — 6:00 PM, St. Louis Park, MN, USA
-- Monarca Upstander Training (sign up here https://monarcamn.org/training)
-#### 15 Feb., 2026 — 2:00 PM, St Croix Falls, WI, USA
-- Monarca Upstander Training (sign up here https://monarcamn.org/training)
-#### 03 Mar., 2026 — 10:00 AM, Cable, WI, USA
-- Monarca Upstander Training (sign up here https://monarcamn.org/training)
-#### 06 Mar., 2026 — 11:00 AM Pro Bono Immigration Round Table (Virtual)
-- Run by [the Advocates for Human Rights](https://www.theadvocatesforhumanrights.org/Events/A/Index?id=180)
+
 
 > [! A Note on Sources]
 > Unfreeze is run by one fallible human. I do my best to cite & verify information from multiple sources, but I can and will make mistakes. Inform me of my mistakes by reaching out @tipstogetridofice on [Tumblr](https://www.tumblr.com/tipstogetridofice) or [Bluesky](https://bsky.app/profile/tipstogetridofice.bsky.social), or email me at unfreezeyourself@proton.me. 

@@ -56,6 +56,9 @@ We're so happy you're here. What do you need?
 	- [List of Community-led Bail and Bond Funds](https://bit.ly/localbailfunds) (https://bit.ly/localbailfunds)
 		- Lists **Bail and Bond Funds by State (scroll down)**
 - Minnesota [Immigration Attorney Referral](https://docs.google.com/spreadsheets/d/1lXvPVKhZMYUO4NzykVr1ZenCTDnZBYmz/edit?gid=1422338906#gid=1422338906) List (https://docs.google.com/spreadsheets/d/1lXvPVKhZMYUO4NzykVr1ZenCTDnZBYmz/edit?gid=1422338906#gid=1422338906) 
+- [Volunteer Lawyers Network](https://www.vlnmn.org/help/) in Minneapolis for free legal help. 
+	- **(612) 752-6677** will put you in contact with their non-lawyer employees. You may have to wait on hold for a while. If they can help you, you will be connected with a volunteer lawyer. 
+	- Also offers **online and in-person** help. 
 - The CHRCL's [Technical Support Form](https://docs.google.com/forms/d/e/1FAIpQLSeBO5vmKLbQU1R-x6CHHE0XafotCJYlaH4iqy8T01dEkL-BsA/viewform) (for advocates). 
 ### Towing Services 
 - US

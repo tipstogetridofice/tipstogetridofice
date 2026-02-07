@@ -16,7 +16,6 @@
 - "Atrocities during World War II made clear that these previous efforts to protect individual human rights from government violations were inadequate. Thus was born the Universal Declaration of Human Rights (UDHR) as part of the emergence of the United Nations (UN)" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 12) 
 - "In order to give the human rights listed in the UDHR the force of law, the UN drafted two treaties, the International Covenant on Civil and Political Rights (ICCPR) and the International Covenant on Economic, Social, and Cultural Rights (ICESCR)" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 12) 
 - "The UDHR states: 'every individual and every organ of society ... shall strive by teaching and education to promote respect for these rights and freedoms and by progressive measures, national and international, to secure their universal and effective recognition and observance" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 14) 
-- 
 
 
 

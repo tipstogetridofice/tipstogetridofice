@@ -12,10 +12,22 @@
 
 # Learn from the Present 
 The pages below are regularly updated with resources, news, and safety information. 
+## [Conozca Sus Derechos](https://www.miracmn.com/know-your-rights) 
+Know your rights, in English y Español)
+## Basic Premise of International Human Rights
+- Per international human rights treaties and agreements, signatories must: 
+	- "Take steps: Governments have to start taking clear and deliberate actions to achieve the goals of the treaty" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 15)
+	- "Use all available resources: Governments have to prioritize spending on economic rights and the international community has to assist countries that have limited resources" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 15) 
+	- "Use all appropriate means: Governments should use a variety of means to achieve the rights, such as legislation, education, and financial support. They should strongly consider creating a judicial remedy for violations of economic, social, and cultural rights" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 15) 
+- In order to join an international treaty created and organized by the UN, the United States' "President must first sign it, and then present it to the Senate, where two-thirds of senators must vote to ratify it. Through ratification, a country agrees to be legally bound by the terms of the treaty" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 15). 
+- Universal Periodic Review (UPR): "The UPR is a relatively new human rights process under the auspices of the Human Rights Council. The UPR is designed to review the human rights records of all 193 UN member countries once every four years." ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 20) 
+
 ### [[Trainings & events (updated daily)\|Trainings & events (updated daily)]] 
 Learn how to court-watch, navigate the US legal system, and more. 
 ### [[Activism in the 21st Century\|Activism in the 21st Century]]
 Recent resources on organizing, protesting, fundraising, and more. 
+- What are Human Rights? 
+- [[How to Keep Yourself Safe\|How to Keep Yourself Safe]]
 ## [[How ICE works\|How ICE works]]
 News reports, explanations of your rights, and how to navigate detention. 
 

@@ -8,6 +8,7 @@
 
 # Feeling frozen? Unsure how to help? 
 Fascism thrives on inaction, ignorance, and apathy. Don't let it win. There are many different ways to get rid of ICE. 
+## **Urgent: [[Help Minneapolis\|Help Minneapolis]]** 
 
 ---
 ## 🧯 Fight Inaction: [[Direct Actions\|Wield your attention, money, or presence]]

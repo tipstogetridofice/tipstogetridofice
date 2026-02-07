@@ -26,7 +26,7 @@ Outlined below, you can find **tasks you can do *right now*** (or in the near fu
 - Keep ICE out of local law enforcement by flooding ICE's official government email, [ERO287g@ice.dhs.gov](mailto:ERO287g@ice.dhs.gov). Don't let this email be functional. 
 - Catch up on ICE's current tactics with [[ICE's Current Tactics\|ICE's Current Tactics]]
 
-> *"We have seen repression and violence at first hand. It has sometimes forced us to demonstrate our physical strength and, on occasion, has even required a life to be sacrificed for the benefit of others. We do this because we have principles and values, because we love life in all its forms and because we demand the respect we deserve from the state and its institutions, from governments and governors. **We do this because it is right."***
+> *"We do this because we have principles and values, because we love life in all its forms and because we demand the respect we deserve from the state and its institutions, from governments and governors. **We do this because it is right."***
 > — Dr. Yuri Giovanni Melini
 ### 🧑‍💻 [[Free, Online, Digital, or Remote Support Needed\|Free, Online, Digital, or Remote Support Needed]]
 ### 🌻 [[Financial Support Needed\|Financial Support Needed]] 

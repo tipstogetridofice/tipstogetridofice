@@ -29,13 +29,14 @@ Keep up-to-date on what is happening right now. How can you prepare yourself? Wh
 - [[Trainings & events (updated daily)\|Trainings & events (updated daily)]]
 - [[Activism in the 21st Century\|Activism in the 21st Century]] 
 - [[How ICE works\|How ICE works]]
+- [Conozca Sus Derechos](https://www.miracmn.com/know-your-rights) (know your rights, in English y Español)
 ## 🌳 [[Build a better Future\|Build a better Future]]
 The work of future-building belongs to the dreamers, the poets, the scientists, the artists, the visionaries — to everyone. 
 - [[Teaching the Next Generation\|Teaching the Next Generation]]
 - [[How to build a Safer World\|How to build a Safer World]]
 
-## ⛑️ How to Protect Yourself
-- **Be mindful about overwhelming yourself with information.** 
+## ⛑️ [[How to Keep Yourself Safe\|How to Keep Yourself Safe]]
+Resources for managing your time, information, documents, technology, and more. 
 
 > "Conversations that trigger thoughts about past frightening experiences—or fears of what might happen in the future—produce some of the same neurological responses that confronting actual danger produces."
 > — [*Coming to Grips with Fear*](https://www.level-up.cc/before-an-event/psychosocial-underpinnings-of-security-training/1-getting-grips-with-fear/)
