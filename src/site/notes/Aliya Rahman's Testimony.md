@@ -6,10 +6,9 @@
 > ⬅️ Return to the [[Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[How-to Guides for the Revolution\|How-to Guides for the Revolution]]
+> ➡️ [[Archive of Information on Rights, ICE, and Activism\|Archive of Information on Rights, ICE, and Activism]]
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
-
 # Aliya Rahman is a disabled activist who was targeted by ICE while in her vehicle. 
 Listen to her testimony [here](https://bsky.app/profile/cwebbonline.com/post/3mdyev3c2rk2c) or [here](https://youtu.be/zSmRlXkq4J4?si=fviehj9A9VGwbUyr).  
 - She describes how she was violently removed from her vehicle, and how unclear orders were shouted at her. 
@@ -17,7 +16,6 @@ Listen to her testimony [here](https://bsky.app/profile/cwebbonline.com/post/3md
 - She was taken to the Whipple building in Minneapolis, where she describes seeing "Black and brown bodies shackled together and being marched by yelling agents"
 - She reports, "you have no reason to believe you will make it out alive" 
 - She was **never charged with a crime.**
-
 
 > [! A Note on Sources]
 > Unfreeze is run by one fallible human. I do my best to cite & verify information from multiple sources, but I can and will make mistakes. Inform me of my mistakes by reaching out @tipstogetridofice on [Tumblr](https://www.tumblr.com/tipstogetridofice) or [Bluesky](https://bsky.app/profile/tipstogetridofice.bsky.social), or email me at unfreezeyourself@proton.me. 

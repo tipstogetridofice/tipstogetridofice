@@ -6,7 +6,7 @@
 > ⬅️ Return to the [[Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[How-to Guides for the Revolution\|Learn from the past, present, or future]]
+> ➡️ [[Archive of Information on Rights, ICE, and Activism\|Archive of Information on Rights, ICE, and Activism]]
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 

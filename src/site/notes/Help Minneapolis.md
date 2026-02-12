@@ -6,7 +6,7 @@
 > ⬅️ Return to the [[Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[How-to Guides for the Revolution\|How-to Guides for the Revolution]]
+> ➡️ [[Archive of Information on Rights, ICE, and Activism\|Archive of Information on Rights, ICE, and Activism]]
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 # Help Minneapolis 
@@ -19,8 +19,6 @@
 	- Post [Monarca's artwork](https://monarcamn.org/artwork) to show your solidarity and support (https://monarcamn.org/artwork). 
 	 - Defend 612's [Community Defense Art](https://defend612.com/art/) is free to post & share (https://defend612.com/art/)  
 ## Upcoming Events 
-#### 09 Feb., 2026 — 6:00 PM, Golden Valley, MN, USA
-- Monarca Upstander Training (sign up here https://monarcamn.org/training)
 #### 12 Feb., 2026 — 6:00 PM, St. Louis Park, MN, USA
 - Monarca Upstander Training (sign up here https://monarcamn.org/training)
 See more non-MN events at [[Trainings & events (updated daily)\|Trainings & events (updated daily)]]. 

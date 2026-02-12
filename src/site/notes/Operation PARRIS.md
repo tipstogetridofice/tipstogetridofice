@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/resources-for-rest-and-healing/"}
+{"dg-publish":true,"permalink":"/operation-parris/"}
 ---
 
 > [!NOTE] Navigation
@@ -9,13 +9,8 @@
 > ➡️ [[Archive of Information on Rights, ICE, and Activism\|Archive of Information on Rights, ICE, and Activism]]
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
-# Resources for Restoration and Healing 
-## Events 
-### Wednesdays 
-- [Minneapolis Community Processing](https://www.internamentalhealth.com/community/p/minneapolis-community-processing) (online, video call, free)
-## Resources 
-- [Well-being Toolkit en Español](https://www.frontlinedefenders.org/en/well-being-toolkit-spanish)
 
+👷🏻 *This article is still being researched. Check back again later for more complete information*
 
 > [! A Note on Sources]
 > Unfreeze is run by one fallible human. I do my best to cite & verify information from multiple sources, but I can and will make mistakes. Inform me of my mistakes by reaching out @tipstogetridofice on [Tumblr](https://www.tumblr.com/tipstogetridofice) or [Bluesky](https://bsky.app/profile/tipstogetridofice.bsky.social), or email me at unfreezeyourself@proton.me. 

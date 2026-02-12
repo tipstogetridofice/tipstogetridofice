@@ -6,13 +6,15 @@
 > ⬅️ Return to the [[Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[How-to Guides for the Revolution\|Learn from the past, present, or future]]
+> ➡️ [[Archive of Information on Rights, ICE, and Activism\|Archive of Information on Rights, ICE, and Activism]]
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 #### Funding Lists 
 - Twin Cities Verified list of [Mutual Aid Funds & Food Drives](https://linktr.ee/mn50501mutualaid) (https://linktr.ee/mn50501mutualaid). 
 #### Mutual Aid Funds 
--  Twin Cities Verified list of [Mutual Aid Funds & Food Drives](https://linktr.ee/mn50501mutualaid) (https://linktr.ee/mn50501mutualaid). 
+- Juan was detained; [support his family](https://www.gofundme.com/f/help-for-this-familya-father-was-detained-by-ice/donate?utm_campaign=unknown&utm_medium=referral&utm_source=linktr.ee) now.  
+- Father of family was detained; [support the family](https://www.gofundme.com/f/help-family-after-father-was-detained-in-richfield-mn/donate?utm_campaign=unknown&utm_medium=referral&utm_source=linktr.ee) now.
+- Twin Cities Verified list of [Mutual Aid Funds & Food Drives](https://linktr.ee/mn50501mutualaid) (https://linktr.ee/mn50501mutualaid). 
 #### Organizations in need of Funding
 
 > [! A Note on Donations]

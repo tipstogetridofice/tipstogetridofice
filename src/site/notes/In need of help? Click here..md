@@ -6,7 +6,7 @@
 > ⬅️ Return to the [[Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[How-to Guides for the Revolution\|Learn from the past, present, or future]]
+> ➡️ [[Archive of Information on Rights, ICE, and Activism\|Archive of Information on Rights, ICE, and Activism]]
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 ## Find What You Need 
@@ -25,6 +25,7 @@ We're so happy you're here. What do you need?
 	- The Legal Rights Center's First Defense Hotline: **612-200-0844** ([source](https://legalrightscenter.org/firstdefense/))
 	- To help a detainee, call the NLG Hotline 612-444-2654 ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0))
 ### Helping a Detainee 
+- Detainees should appear on [this website](https://locator.ice.gov/odls/#/search)— although attorneys report that some detainees have never appeared or take a long time to appear in this database. 
 - In Minnesota: 
 	- If someone has just been detained by ICE and has not yet been transferred to Whipple or out of Minnesota, there is a narrow window to act. **Whether a family member, Next Friend, or attorney is contacted first, the following information should be gathered as quickly as possible to allow immediate habeas filing ([source](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0)):
 		- Full legal name
@@ -51,6 +52,7 @@ We're so happy you're here. What do you need?
 - Front Line Defenders (for Human Rights Defenders) **+353-1-210-0489**
 	- Or via this [Secure Contact Form](https://www.frontlinedefenders.org/en/secure/comment.php?l=en)
 ### Legal Services 
+- Check your [immigration case status](https://egov.uscis.gov/).
 - Financial assistance posting your bond 
 	- [MIBF](https://www.mibfc.org/gethelp) posts bonds for residents of **Illinois, Indiana, Minnesota, Wisconsin, and Kentucky** (or individuals who intend to live in one of these states upon release) regardless of where they are detained. MIBF also posts bonds for **people detained by ICE in facilities in Indiana, Minnesota, Wisconsin, and Kentucky** regardless of their residency. (https://www.mibfc.org/gethelp, In English y Español)
 	- [List of Community-led Bail and Bond Funds](https://bit.ly/localbailfunds) (https://bit.ly/localbailfunds)
@@ -60,6 +62,7 @@ We're so happy you're here. What do you need?
 	- **(612) 752-6677** will put you in contact with their non-lawyer employees. You may have to wait on hold for a while. If they can help you, you will be connected with a volunteer lawyer. 
 	- Also offers **online and in-person** help. 
 - The CHRCL's [Technical Support Form](https://docs.google.com/forms/d/e/1FAIpQLSeBO5vmKLbQU1R-x6CHHE0XafotCJYlaH4iqy8T01dEkL-BsA/viewform) (for advocates). 
+- [National Immigration Legal Services Directory](https://www.immigrationadvocates.org/legaldirectory/) can be used to search for nonprofit organizations that provide free or low-cost immigration legal services. 
 ### Towing Services 
 - US
 	- Minnesota (MN) 

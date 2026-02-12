@@ -6,12 +6,12 @@
 > ⬅️ Return to the [[Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Direct Actions\|Direct Actions to take NOW]]
-> ➡️ [[How-to Guides for the Revolution\|Learn from the past, present, or future]]
+> ➡️ [[Archive of Information on Rights, ICE, and Activism\|Archive of Information on Rights, ICE, and Activism]]
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 # How can we rebuild? 
 With any revolution, there will be destruction of an old way. But that destruction must pave the way for a new world, a better one, to be built. The pages below include resources that imagine a better future, supported by scholarly research, poetry, the visionary world of speculative fiction, and more. 
-## [[How to build a Safer World\|How to build a Safer World]]
+## [[How to Rebuild Our Community\|How to Rebuild Our Community]]
 Resources on equitable policing, community safety, and community support. 
 ## [[Teaching the Next Generation\|Teaching the Next Generation]]
 Resources for educators. 
