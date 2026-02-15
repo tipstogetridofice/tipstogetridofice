@@ -12,7 +12,7 @@
 # Aliya Rahman is a disabled activist who was targeted by ICE while in her vehicle. 
 Listen to her testimony [here](https://bsky.app/profile/cwebbonline.com/post/3mdyev3c2rk2c) or [here](https://youtu.be/zSmRlXkq4J4?si=fviehj9A9VGwbUyr).  
 - She describes how she was violently removed from her vehicle, and how unclear orders were shouted at her. 
-- She stated that she is disabled (she has autism and has sustained a brain injury), and ICE officers replied "too late." 
+- She informed the officers that she is disabled (she has autism and has sustained a brain injury), and ICE officers replied "too late." 
 - She was taken to the Whipple building in Minneapolis, where she describes seeing "Black and brown bodies shackled together and being marched by yelling agents"
 - She reports, "you have no reason to believe you will make it out alive" 
 - She was **never charged with a crime.**

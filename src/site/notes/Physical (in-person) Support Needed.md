@@ -20,7 +20,7 @@ Movements need visibility, and they need people physically present, doing the wo
 - [Translate documents and interpret](https://www.theadvocatesforhumanrights.org/Volunteer/Interpret) during in-person meetings or interviews. 
 ###### Minneapolis / The Twin Cities 
 - Volunteer (14+, no experience required) for [Cavalry Food Shelf](https://www.calvaryfoodshelf.org/volunteer). 
-- Need for **[volunteer photographers** in Minneapolis](https://www.theadvocatesforhumanrights.org/Volunteer/Photographer) to document the work of The Advocates for Human Rights. 
+- Need for **[volunteer photographers** in Minneapolis](https://www.theadvocatesforhumanrights.org/Volunteer/Photographer) to documentThe Advocates for Human Rights. 
 - [This verified linktree](https://linktr.ee/mn50501mutualaid) keeps (relatively) up-to-date lists of ongoing food drives, fundraisers, and resources in Minneapolis. 
 -  **[Sign up to be a carer**](https://www.jotform.com/form/260126904111141) if you're willing to offer: 
 	- Shopping and/or delivery of supplies 

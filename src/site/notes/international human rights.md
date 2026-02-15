@@ -12,7 +12,6 @@
 
 ## International Human Rights vs. U.S. Law 
 - "Although the U.S. Constitution provides strong protections for civil and political rights, it fails to recognize the economic, social, and cultural rights guaranteed in the UDHR. Some rights, such as the right to education, can be found in some state constitutions; others, such as the right to an adequate standard of living including food, shelter, and medical care, have not been recognized as rights" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 25)
-- 
 ## International Human Rights Organizations 
 This archive is focused on international bodies that moderate the US, as we are focused on the immigration issues of the US. Other international human rights bodies can be found on p.24 of [this document](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf).
 - [[the United Nations\|The United Nations]]

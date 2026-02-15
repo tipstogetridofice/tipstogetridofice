@@ -20,7 +20,7 @@
 ##### Support the IRAP with your [donation](https://give.refugeerights.org/campaign/607248/donate) so they can continue their important legal work. 
 
 ---
-###  "At its best, America serves as a haven of individual liberties in a world too often full of tyranny and cruelty," U.S. District Judge John Tunheim wrote in the order. "We abandon that ideal when we subject our neighbors to fear and chaos." 
+###  "At its best, America serves as a haven of individual liberties in a world too often full of tyranny and cruelty. We abandon that ideal when we subject our neighbors to fear and chaos." 
 — U.S. District Judge John Tunheim, ordering the release of detained refugees in Minnesota ([source](https://www.npr.org/2026/02/02/nx-s1-5686396/ice-arrest-refugees-legal-minneapolis-minnesota-immigration?utm_campaign=npr&utm_source=bsky.app&utm_term=nprnews&utm_medium=social)) 
 
 ---

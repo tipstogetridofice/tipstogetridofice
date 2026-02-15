@@ -21,7 +21,7 @@ The pages below are regularly updated with resources, news, and safety informati
 	- [[What are human rights?\|What are human rights?]]
 	- [[Current Resources on Activism Best Practices\|Current Resources on Activism Best Practices]] 
 	- [[The UN's Special Procedures\|The UN's Special Procedures]]
-	- [[Immigration Processes in the US\|Immigration Processes in the US]]
+	- [[How the US Immigration System Works (or doesn't)\|How the US Immigration System Works (or doesn't)]]
 
 ## [Conozca Sus Derechos](https://www.miracmn.com/know-your-rights) 
 Know your rights, in English y Español
