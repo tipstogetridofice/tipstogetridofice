@@ -17,7 +17,7 @@ Resources on reported tactics, your rights, and how to keep yourself safe from I
 - Detainees are frequently **moved** after their arrest, often to **Texas**. 
 	- They are likely to sustain inhumane conditions. 
 	- This includes children & the elderly. 
-- ICE officers are working with local law enforcement in some cases; be wary of police. 
+- ICE officers are working with local law enforcement in some cases; **be wary of police.** 
 - ICE may approach you in your vehicle, at work, and at home. 
 	- At home and in your vehicle, the Constitution states that you **do not have to let ICE inside unless they have a *judicial* warrant** signed by a judge. 
 		- ICE has been known to present *administrative* warrants, which are not signed by a judge. 

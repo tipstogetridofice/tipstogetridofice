@@ -10,10 +10,6 @@
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 # Trainings & Events (updated daily)
-#### 16 Feb., 2026 — 6:30 PM, St Paul, MN, USA
-- Monarca Upstander Training (sign up here https://monarcamn.org/training)
-#### 19 Feb., 2026 — 6:30 PM, Como Park, MN, USA
-- Monarca Upstander Training (sign up here https://monarcamn.org/training)
 #### 02 Mar., 2026 — 6:30 PM, Midway, St Paul, MN, USA
 - Monarca Upstander Training (sign up here https://monarcamn.org/training)
 #### 06 Mar., 2026 — 11:00 AM Pro Bono Immigration Round Table (Virtual)

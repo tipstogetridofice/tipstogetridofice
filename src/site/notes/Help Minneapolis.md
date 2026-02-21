@@ -16,12 +16,8 @@
 - MSP Whistles [Guide to Safety Whistles ](https://linktr.ee/mspwhistles)
 	- [Purchase safety whistles](https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share) for the community 
 - Post, print, and/or distribute these pieces of art: 
-	- Post [Monarca's artwork](https://monarcamn.org/artwork) to show your solidarity and support (https://monarcamn.org/artwork). 
-	 - Defend 612's [Community Defense Art](https://defend612.com/art/) is free to post & share (https://defend612.com/art/)  
-## Upcoming Events 
-#### 12 Feb., 2026 — 6:00 PM, St. Louis Park, MN, USA
-- Monarca Upstander Training (sign up here https://monarcamn.org/training)
-See more non-MN events at [[Trainings & events (updated daily)\|Trainings & events (updated daily)]]. 
+	- Post [Monarca's artwork](https://monarcamn.org/artwork) to show your solidarity and support. 
+	 - Defend 612's [Community Defense Art](https://defend612.com/art/) is free to post & share. 
 ## Funding Needed 
 - [Purchase safety whistles](https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share) for the community 
 ## Support Needed 

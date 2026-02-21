@@ -12,7 +12,7 @@ Fascism thrives on inaction, ignorance, and apathy. Don't let it win. There are 
 
 ---
 ## 🧯 Fight Inaction: [[Direct Actions\|Wield your attention, money, or presence]]
-Even if you aren't physically or financially able to attend protests or donate, there are still many ways you can help. Updated weekdays.  
+Even if you aren't physically or financially able to attend protests or donate, there are still many ways you can help.
 ## 🍎 Fight Ignorance: [[Archive of Information on Rights, ICE, and Activism\|Learn from the past, present, or future]]
 Educate yourself and teach others. Practical information to help you and your community understand the present moment, your rights, and what you can do. 
 ## 🔥 Fight Apathy: [[Let's build a better world.\|Celebrate Successes, Commemorate Sacrifices]]
