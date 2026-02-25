@@ -9,7 +9,7 @@
 > ➡️ [[Archive of Information on Rights, ICE, and Activism\|Archive of Information on Rights, ICE, and Activism]]
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
-# ✊ How to Fight Back: Resources on Activism, Advocacy, and Community Organizing 
+# ✊ Resources on Activism, Advocacy, and Community Organizing 
 - [*Five Questions for Cultivating Solidarity When Responding to Political Repression*](https://www.communityjusticeexchange.org/en/resources-all/five-questions-for-cultivating-solidarity)
 -  *[Fundraising for Direct Aid is NOT Illegal. But there is paperwork.](https://www.communityjusticeexchange.org/en/resources-all/fundraising-for-direct-aid-guidance)* 
 - *[A Social Media Toolkit for Organizing and Advocacy to End Mass Criminalization and Incarceration](https://www.communityjusticeexchange.org/en/resources-all/a-social-media-toolkit-for-organizing-and-advocacy-to-end-mass-criminalization-and-incarceration)*

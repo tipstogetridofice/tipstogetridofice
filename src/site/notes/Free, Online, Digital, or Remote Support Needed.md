@@ -26,8 +26,6 @@ Keep people talking, don't let them forget what's happening. If we forget, the f
  - Defend 612's [Community Defense Art](https://defend612.com/art/) is free to post & share. 
 ## Tell Your Story
 You are important to us. Speak out about your needs, who has helped you, and how you are going to give back. 
-### Places to Share Your Story
-- Have you experienced food insecurity and benefitted from Channel One Regional Food Bank? Share your story [here](https://www.helpingfeedpeople.org/contact-us/tell-us-your-story/). 
 
 > [! A Note on Sources]
 > Unfreeze is run by one fallible human. I do my best to cite & verify information from multiple sources, but I can and will make mistakes. Inform me of my mistakes by reaching out @tipstogetridofice on [Tumblr](https://www.tumblr.com/tipstogetridofice) or [Bluesky](https://bsky.app/profile/tipstogetridofice.bsky.social), or email me at unfreezeyourself@proton.me. 

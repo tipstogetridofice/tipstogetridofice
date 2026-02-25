@@ -14,7 +14,7 @@ Movements need visibility, and they need people physically present, doing the wo
 #### US 
 - Opportunity for **legal professionals to [take on pro bono cases](https://www.theadvocatesforhumanrights.org/Volunteer/Represent) f**or refugees, unaccompanied children, trafficking survivors, detained immigrants, etc.
 ##### Minnesota 
-- [Paint a bowl ](https://www.helpingfeedpeople.org/empty-bowls/)for Empty Bowls 2026. 
+- [Paint a bowl](https://www.helpingfeedpeople.org/empty-bowls/)for Empty Bowls 2026. 
 - 01 Mar.–06 April, 2026, [Join the Food Share March Campaign](https://gmcc.org/march-campaign/) to re-stock food banks. 
 - [Receive training & volunteer as a Court Watcher](https://www.theadvocatesforhumanrights.org/Volunteer/Immigration_Court) for in-person Fort Snelling Immigration Court hearings to ensure due process. 
 - [Translate documents and interpret](https://www.theadvocatesforhumanrights.org/Volunteer/Interpret) during in-person meetings or interviews. 

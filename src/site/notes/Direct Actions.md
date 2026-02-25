@@ -22,7 +22,6 @@ Outlined below, you can find **tasks you can do *right now*** (or in the near fu
 
 ---
 ### 🐦‍🔥 High-Priority and/or High-Need 
-- Buy safety whistles for Minnesota using this verified [Amazon wish list](https://www.amazon.com/hz/wishlist/ls/3DS3S8KPJPHZX?ref_=wl_share) ([source](https://linktr.ee/mn50501mutualaid))
 - Keep ICE out of local law enforcement by flooding ICE's official government email, [ERO287g@ice.dhs.gov](mailto:ERO287g@ice.dhs.gov). Don't let this email be functional. 
 - Catch up on ICE's current tactics with [[Comprehensive Record of ICE Tactics\|Comprehensive Record of ICE Tactics]]
 
