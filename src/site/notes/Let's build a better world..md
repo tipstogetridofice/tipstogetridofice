@@ -24,8 +24,8 @@
 — U.S. District Judge John Tunheim, ordering the release of detained refugees in Minnesota ([source](https://www.npr.org/2026/02/02/nx-s1-5686396/ice-arrest-refugees-legal-minneapolis-minnesota-immigration?utm_campaign=npr&utm_source=bsky.app&utm_term=nprnews&utm_medium=social)) 
 
 ---
-### Over $150,000 donated to Cavalry Food Shelf to help those threatened by ICE. 
-**$166,476 raised, and counting** — as of 1/30/2026.
+### Almost $200,000 donated to Cavalry Food Shelf to help those threatened by ICE. 
+**$197,882 raised, and counting** — as of 2/27/2026.
 ([source](https://www.givemn.org/story/wwca4g))
 
 ---

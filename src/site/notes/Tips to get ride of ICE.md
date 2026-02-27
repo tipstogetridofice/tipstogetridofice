@@ -4,7 +4,7 @@
 
 # ❗️[[In need of help? Click here.\|In need of help? Click here.]] ❗️
 
-![Unfreezeheader2.png](/img/user/Original%20Media/Unfreezeheader2.png)
+![Unfreezeheader2 1.png](/img/user/Original%20Media/Unfreezeheader2%201.png)
 
 # Feeling frozen? Unsure how to help? 
 Fascism thrives on inaction, ignorance, and apathy. Don't let it win. There are many different ways to get rid of ICE. 

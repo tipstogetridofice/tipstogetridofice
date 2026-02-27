@@ -10,7 +10,6 @@
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 # How to File a Case with the IACHR
-- Use this **[online form](http://www.oas.org/en/iachr/)** to file a complaint (currently under maintenance).
 - "An individual, group, or nongovernmental organization may file a petition with the IACHR with information about the petitioner and the human rights violations" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 24) 
 - Before filing with the IACHR, "advocates should first determine whether the government violated any of the rights in the American Declaration of the Rights and Duties of Man" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 24)
 	- "Advocates should also consider whether the individual bringing the complaint (the petitioner) has exhausted all options in domestic courts" ([Source](https://www.theadvocatesforhumanrights.org/Res/dhr_training_manual_2017%203.pdf), p. 24).

@@ -12,8 +12,7 @@
 
 # Comprehensive Record of ICE tactics 
 ### Trump's Orders
-- The Trump Administration has implemented a policy instructing ICE to go door-to-door and detain immigrants — even those holding lawful immigration statuses, such as refugee status — as part of a bureaucratic excuse that they are "reviewing" immigration cases from recent years. **This is clearly an excuse, and the exact kind of excuse routinely used by fascists to cement power.**
-- As a result, ICE is currently: 
+- ICE is currently: 
 	- Targeting those awarded refugee status 
 	- Going door-to-door. 
 	- **Arresting, trafficking, and detaining refugees (incl. the elderly and children) in inhumane conditions in detention camps in Texas** 
