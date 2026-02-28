@@ -31,8 +31,6 @@
 - "It is expensive to detain people, keep them locked up for weeks on end, encourage them to declare themselves illegal aliens in exchange for a cash bonus and cover the costs of their transportation home. (Karen received the $1000 bonus but, like others who have opted for self-deportation, Bill never received the promised payment)" ([Kleeman, 2026](https://www.theguardian.com/us-news/2026/feb/21/karen-newton-valid-visa-detained-ice?CMP=Share_AndroidApp_Other))
 - "Karen may have been released sooner had she shared her story earlier. But when she was in the detention centre, she had balked at the idea. 'I was mortified at the thought,' she says. 'It was only afterwards I thought, "no, I do need to speak up. How many other people like me have been detained and not said a word? If we don't speak up, nobody is going to know, and it will happen to somebody else.'" ([Kleeman, 2026](https://www.theguardian.com/us-news/2026/feb/21/karen-newton-valid-visa-detained-ice?CMP=Share_AndroidApp_Other))
 
-
-
 > [! A Note on Sources]
 > Unfreeze is run by one fallible human. I do my best to cite & verify information from multiple sources, but I can and will make mistakes. Inform me of my mistakes by reaching out @tipstogetridofice on [Tumblr](https://www.tumblr.com/tipstogetridofice) or [Bluesky](https://bsky.app/profile/tipstogetridofice.bsky.social), or email me at unfreezeyourself@proton.me. 
 > **I am not a lawyer or a doctor. The information contained on this website is for informational purposes only and does not constitute legal, medical, or professional advice.**

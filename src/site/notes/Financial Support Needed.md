@@ -25,7 +25,6 @@
 -  [Fe Y Justica](https://www.feyjusticiamn.com/) a Latinx-led non-profit organization — scroll to the bottom of their webpage for donation links.
 - Host or Support a Virtual Food Drive for [Channel One Regional Food Bank](https://www.helpingfeedpeople.org/donate/virtual-food-drive/)  
 - The [ACLU](https://www.aclu.org/artistic-expression-banned-books) 
-- The [March Campaign](https://gmcc.org/march-campaign/) for MN Food Share 
 - [Community Justice Exchange](https://www.communityjusticeexchange.org/en/donate) collects & supports community-led bail and bond funds to help those in need post bail / bond after being arrested/detained.
 - [National Bail Fund Network](https://secure.actblue.com/donate/pretrialfreedom) supports bail and bond funds to help those in need post their bail/bonds after being arrested/detained 
 - [Midwest Immigration Bond Fund](https://www.mibfc.org/helpusgrow) supports bail and bonds across the midwestern US, particular in response to those detained by ICE. 

@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/operation-parris/"}
 ---
 
-> [!NOTE] Navigation
+P> [!NOTE] Navigation
 > ⬅️ Return to the [[Tips to get ride of ICE\|homepage]]. 
 > 🆘 [[In need of help? Click here.\|In need of help? Click here.]]
 > ➡️ [[Direct Actions\|Direct Actions to take NOW]]
