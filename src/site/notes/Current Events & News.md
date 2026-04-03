@@ -10,6 +10,7 @@
 > ➡️ [[Let's build a better world.\|Let's build a better world.]]
 > **✏️ Have something to submit?** Email me at unfreezeyourself@proton.me
 
+# Current Events & News
 
 ---
 ## [[Trainings & events (updated daily)\|Trainings & events (updated daily)]]
@@ -17,9 +18,9 @@
 ## [Conozca Sus Derechos](https://www.miracmn.com/know-your-rights) (know your rights, in English y Español)
 
 ---
-# Topics 
+## Topics 
 ## [[detention centers\|ICE Detention]]
-## [[ICE Factsheet — What you Need to Know\|ICE Factsheet — What you Need to Know]]
+## [[ICE\|ICE]]
 ## [[How to Keep Yourself Safe\|How to Keep Yourself Safe]]
 ## [[What are human rights?\|What are human rights?]]
 ## [[Current Resources on Activism Best Practices\|Current Resources on Activism Best Practices]] 

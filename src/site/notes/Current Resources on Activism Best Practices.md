@@ -22,6 +22,10 @@
 - [Risk Analysis & Protection Planning for Human Rights Defenders](https://www.frontlinedefenders.org/en/programme/risk-analysis-protection-planning) 
 	- Guide on how to educate new activists & human rights defenders. 
 - [Workbook on Security: Practical Steps for Human Rights Defenders at Risk](https://www.frontlinedefenders.org/en/resource-publication/workbook-security-practical-steps-human-rights-defenders-risk). 
+## Singing Resistance 
+- A group who organizes protests where participants sing ([source](https://www.goodgoodgood.co/articles/singing-resistance-day-of-song)).
+	- "According to a toolkit from the group, Singing Resistance also hopes to bring large numbers of people into their movement, and like all of their demonstrations, encourage “healing from the impacts of living in an oppressive society." ([source](https://www.goodgoodgood.co/articles/singing-resistance-day-of-song))
+	- "'Singing Resistance is building a mass movement of singers to protect and care for our communities in the face of rising authoritarianism. We are grounded in love, nonviolence, and solidarity,' the group shared in [a social media post](https://www.instagram.com/p/DUdwTCQjG9s/)." ([source](https://www.goodgoodgood.co/articles/singing-resistance-day-of-song))
 
 > [! A Note on Sources]
 > Unfreeze is run by one fallible human. I do my best to cite & verify information from multiple sources, but I can and will make mistakes. Inform me of my mistakes by reaching out @tipstogetridofice on [Tumblr](https://www.tumblr.com/tipstogetridofice) or [Bluesky](https://bsky.app/profile/tipstogetridofice.bsky.social), or email me at unfreezeyourself@proton.me. 

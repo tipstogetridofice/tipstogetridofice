@@ -12,6 +12,10 @@
 
 # Let's Build a Better World 
 
+### Singing Resistance is held a Nationwide Day of Song 
+#### Background: 
+> In addition to [singing on stage with Brandi Carlile](https://www.goodgoodgood.co/articles/brandi-carlile-minnesota-singing-resistance) at a recent concert, and sharing a digital songbook of protest hymns that are being practiced in churches and community centers in cities across the country, Singing Resistance has taken this opportunity to mobilize other anti-authoritarian protesters to action. ([Source](https://www.goodgoodgood.co/articles/singing-resistance-day-of-song))
+
 ---
 ### Restraining Order Issued in U.H.A v. Bondi
 ##### Status: - **January 28, 2026:** Court issues [order](https://e1.nmcdn.io/assets/irap/wp-content/uploads/2026/01/ECF-041-Order-granting-TRO.pdf) granting Plaintiffs’ motion for a temporary restraining order.

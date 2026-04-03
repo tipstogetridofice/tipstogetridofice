@@ -18,7 +18,7 @@
 	- **Arresting, trafficking, and detaining refugees (incl. the elderly and children) in inhumane conditions in detention camps in Texas** 
 	- Sending those released from detention out onto the streets of Texas with no support, money, identification, or transportation home. 
 - **This is unlawful. Legal advocacy groups are doing the hard work of pushing through class action lawsuits pushing back against these policies.**
-- ICE officers sometimes sign agreements with local law enforcement. Educate yourself on how your county is run, and by whom.
+- ICE officers sometimes sign agreements with local law enforcement. Educate yourself on how your county is run and by whom.
 - ICE has a history subjecting immigrants to "[digital prisons](https://www.communityjusticeexchange.org/en/resources-all/fact-sheet-on-ice-foia-lawsuit)" and [surveillance](https://www.communityjusticeexchange.org/en/resources-all/trackedamp-trapped-experiences-from-ice-digital-prisons) that effects lasting trauma and harm. 
 ### If ICE approaches your vehicle
 - Remain calm, and keep your hands on the steering wheel. Comply with all orders quickly and calmly. 
@@ -38,7 +38,7 @@
 - If you have **ever** missed immigration court (no matter the reason) and/or if you failed to meet any of the requirements of your supervision program and/or if you have not met any of ICE's demands at any point. 
 	- This includes working without authorization if prohibited by your surveillance program. 
 ### Lying & Trickery: ICE's tactics 
-> *"'They told me they just needed to verify the fingerprints for our oldest son, but he would not be detained,' he said. The family asked to use only their initials for fear of retaliation from Immigration and Customs Enforcement.*
+> *"'They told me they just needed to verify the fingerprints for our oldest son, but he would not be detained,' he said. 
    *J.J. and his wife, A., didn't understand why one child's fingerprints would need checking, but they opened the door. And then they watched as their 20-year-old son was, in fact, arrested and driven away in a black SUV.*
    *'When I saw him being handcuffed, I felt so scared,' A. said. '**They were treating him like a delinquent. And they had guns with their fingers on the trigger.***
    [Source](https://www.npr.org/2026/02/02/nx-s1-5686396/ice-arrest-refugees-legal-minneapolis-minnesota-immigration?utm_campaign=npr&utm_source=bsky.app&utm_term=nprnews&utm_medium=social)
@@ -64,20 +64,20 @@
 	- Common examples of case status leading to increased risk include: you have deportation order and no more appeals left; you have a stay of removal that is about to expire; your case was closed but you still check-in with ICE?
 - Contact a local community organization for support with safety planning and support with check-ins. Some organizations will offer to go with you to a check-in. Let the organization know about your appointment as soon as possible, as this increases the likelihood they will be able to help.
 	- Use this [directory](https://www.detentionwatchnetwork.org/about/membership-directory) to find community organizations who can help. 
-### I have refugee status
+### If you have refugee status
 [Source 1](https://docs.google.com/document/d/1EnacBDU1KBefoBekQRNvENwg3BdLVT12me1m7ZgEQOY/edit?tab=t.0)
 - Read [IRAP (the International Refugee Assistance Project)'s comprehensive online resource](https://support.iraplegalinfo.org/hc/en-us/articles/43974720166420-I-live-in-the-US-and-I-have-refugee-status-What-should-I-know) detailing your rights and how you can best prepare yourself. 
 - **Have a habeas petition prepared** in advance, ready to be filed immediately if ICE detains them. Families should also identify a Next Friend in advance in case the detained person cannot communicate or access the courts. 
 - If you notice any errors or unexpected changes in your case, it may be the result of a system error — **contact your case manager immediately.**
 - If you have a scheduled check-in with an immigration official, **do not show up alone**; always bring someone (example: someone with US citizenship status) who is not at risk of being arrested by ICE.
-#### As part of my immigration status, I am in a surveillance program run by ICE 
+#### If you are in a surveillance program run by ICE 
 - Community Justice Exchange's [WHEN ICE IS WATCHING](https://docs.google.com/document/d/1bBCNIw1ISuc6OCT2A2FDcU_A_T7lXC378E_kyuVDk0c/edit?tab=t.r5votdo95gm) explains some red flags to look out for and safety measures to take if you are under digital surveillance as part of your supervision program. 
 - Discuss potential risks and protective actions with an attorney before checking in with ICE and/or BI. Ask them to help you exit the program ([de-escalate](https://resources.humanrightsfirst.org/wp-content/uploads/2024/12/ATD-Attorney-Guide-3.pdf)) or reduce your participation with these programs. If you don’t have an attorney, you can use this [directory](https://www.immigrationadvocates.org/legaldirectory/) to try to find free legal representation.
 	- **If you have any pending criminal charges or investigations,** talk to an attorney about resentencing, pardons, etc. 
 	- If you don't have an attorney, get one. See this page's section on [[In need of help? Click here.\|legal services]]. 
 - If you notice any errors or unexpected changes, it may be the result of a system error — **contact your case manager immediately.**
 - If you have a scheduled check-in with an immigration official, **do not show up alone**; always bring someone (example: someone with US citizenship status) who is not at risk of being arrested by ICE.
-#### I have criminal charges on my record or pending
+#### If you have criminal charges on your record or pending
 - **If you have any pending criminal charges or investigations,** talk to an attorney about resentencing, pardons, etc. 
 	- If you don't have an attorney, get one. See the section on [[In need of help? Click here.\|legal services]]. 
 ## Parental Rights & ICE 
@@ -112,7 +112,6 @@ ICE can approach people in or around cars, but your rights still apply.
 - "Ojala-Barbour said sometimes even the US attorney working the case doesn't know where someone is being held, and has to call ICE to track them down." ([Source 1](https://sahanjournal.com/immigration/ice-detainees-stranded-after-release/?utm_source=Sahan+Journal+newsletter&utm_campaign=a57248a196-Sahan+Sunday_COPY_01&utm_medium=email&utm_term=0_-4785ce0c9c-633894526&mc_cid=a57248a196))
 	- "His client, Juan Tobay Robles, didn't make it home to Minnesota until Jan. 31, more than two weeks after Chief U.S. District Court Judge Patrick Schiltz ordered his release" ([Source 1](https://sahanjournal.com/immigration/ice-detainees-stranded-after-release/?utm_source=Sahan+Journal+newsletter&utm_campaign=a57248a196-Sahan+Sunday_COPY_01&utm_medium=email&utm_term=0_-4785ce0c9c-633894526&mc_cid=a57248a196)). 
 - "Robles may have had one of the better outcomes, after his arrest. Some clients are not showing up on the ICE website for days, while others have not shown up since the beginning of Operation Metro Surge on Dec. 1, according to local attorneys" ([Source 1](https://sahanjournal.com/immigration/ice-detainees-stranded-after-release/?utm_source=Sahan+Journal+newsletter&utm_campaign=a57248a196-Sahan+Sunday_COPY_01&utm_medium=email&utm_term=0_-4785ce0c9c-633894526&mc_cid=a57248a196)). 
-- 
 
 > [! A Note on Sources]
 > Unfreeze is run by one fallible human. I do my best to cite & verify information from multiple sources, but I can and will make mistakes. Inform me of my mistakes by reaching out @tipstogetridofice on [Tumblr](https://www.tumblr.com/tipstogetridofice) or [Bluesky](https://bsky.app/profile/tipstogetridofice.bsky.social), or email me at unfreezeyourself@proton.me. 
